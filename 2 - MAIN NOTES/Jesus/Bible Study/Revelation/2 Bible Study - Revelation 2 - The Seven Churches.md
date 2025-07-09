@@ -16,7 +16,7 @@ Corrupt Church
 Dead Church
 Faithful Church
 Lukewarm Church
- :)
+
 # Bible Study - Revelation 2 - The Seven Churches
 
 ## The patterns of the Seven Church letters
