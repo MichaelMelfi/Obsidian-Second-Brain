@@ -1,3 +1,2 @@
-# Obsidian-Second-Brain
-Obsidian
-Juggernaunfkdpsag
+hbfjkdhakjshdf
+hello my name is michael
