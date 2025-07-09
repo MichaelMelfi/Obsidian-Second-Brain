@@ -2,7 +2,7 @@
 
 Status: #FListening 
 
-Tags: [[3 - TAGS/YWAM]] [[Christian]] [[John Billis]] [[Gods Voice]] [[Hearing]] [[Hearing Gods Voice]] [[Intercession]] [[Prayer]] [[Isaiah]] [[Isaiah 41]] [[Genesis]] [[Genesis 6]] [[Spiritual Warfare]] [[Acts]] [[Acts 19]] [[Ephesians]] [[Ephesians 6]] [[James]] [[James 5]] [[Psalms]] [[Psalms 149]] [[John]] [[John 16]] [[Mark]] [[Mark 16]] [[Revelations]] [[Revelations 12]] [[1 John]] [[1 John 2]] [[Teaching]] [[Intersession]]
+Tags: [[3 - TAGS/YWAM]] [[Christian]] [[John Billis]] [[Gods Voice]] [[Hearing]] [[Hearing Gods Voice]] [[Intercession]] [[Prayer]] [[Isaiah]] [[Isaiah 41]] [[Genesis]] [[Genesis 6]] [[Spiritual Warfare]] [[Acts]] [[Acts 19]] [[Ephesians]] [[Ephesians 6]] [[James]] [[James 5]] [[Psalms]] [[Psalms 149]] [[John]] [[John 16]] [[Mark]] [[Mark 16]] [[Revelation]] [[Revelations 12]] [[1 John]] [[1 John 2]] [[Teaching]] [[Intersession]]
 
 [[YWAM - 5th Week - RECOGNISING GODS VOICE  1-1 - John Billis - Part 1]]
 

@@ -2,7 +2,7 @@
 
 Status: #FListening 
 
-Tags: [[3 - TAGS/YWAM]] [[Christian]] [[Heart of God]] [[Nature and Character of God]] [[Teaching]] [[Ephesians]] [[Ephesians 3]] [[Genesis]] [[Revelations]] [[Revelations 1]] [[Genesis 1]] [[Genesis 3]] [[John]] [[John 1]] [[Story of the Bible]] [[Jonathan Vergauwen]]
+Tags: [[3 - TAGS/YWAM]] [[Christian]] [[Heart of God]] [[Nature and Character of God]] [[Teaching]] [[Ephesians]] [[Ephesians 3]] [[Genesis]] [[Revelation]] [[Revelation 1]] [[Genesis 1]] [[Genesis 3]] [[John]] [[John 1]] [[Story of the Bible]] [[Jonathan Vergauwen]]
 
 [[YWAM - 6th Week - NATURE AND CHARACTER OF GOD (FATHER HEART OF GOD) 2-1 - Jonathan Vergauwen - Who Is God?]]
 [[YWAM - 6th Week - NATURE AND CHARACTER OF GOD (FATHER HEART OF GOD) 3-1 - Jonathan Vergauwen - The Trinity]]
