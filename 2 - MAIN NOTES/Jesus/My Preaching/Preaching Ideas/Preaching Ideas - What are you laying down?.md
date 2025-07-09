@@ -4,7 +4,7 @@ Status: #baby
 
 Tags: [[3 - TAGS/Preaching Ideas]] [[Palm Sunday]] [[Laying down]] [[Matthew]] [[Mark]] [[Luke]] [[John]] [[Matthew 21]] [[Mark 11]] [[Luke 19]] [[John 12]]
 
-# Preaching Ideas - What are you laying down?
+# Preaching Ideas - What are you laying down
 
 Where is Palm Sunday?
 Matthew 21:1-11

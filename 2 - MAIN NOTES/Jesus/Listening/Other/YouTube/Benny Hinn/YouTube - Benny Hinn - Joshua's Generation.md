@@ -6,7 +6,7 @@
 [[Youtube]] [[Benny Hinn]] [[Preach]] [[Joshua]] [[Exodus]] [[Exodus 14]] [[Exodus 16]] [[Exodus 17]] [[Exodus 33]] [[Numbers 13]] [[Joshua 1]] [[Joshua 3]] [[Joshua 4]] [[Matthew 3]] [[Zechariah]] [[Zechariah 2]] [[Joshua 6]] [[Numbers 10]] [[Numbers]] [[Psalm]] [[Psalm 47]] [[Joshua 10]] [[Ephesians]] [[Ephesians 6]] 
 [[Ark]] [[Moses]] [[Presence of God]] [[Arise]] [[Stones]] [[Jericho]] [[Flesh]] [[Fight]] [[3 - TAGS/Victory]] [[Praise]] [[Jordan]] [[Shout]] [[Christian]]
 ##### Links:
-[[YouTube - Benny Hinn - How to prepare and What Will You Do With The Anointing? - Elisha]]
+[[YouTube - Benny Hinn - How to prepare and What Will You Do With The Anointing - Elisha]]
 ##### What Did I Learn From This Teaching?:
 We are living in substance!
 You cannot win a battle with slaves

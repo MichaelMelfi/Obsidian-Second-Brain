@@ -4,7 +4,7 @@ Status: #FListening
 
 Tags: [[Christian]] [[3 - TAGS/YWAM]] [[Teaching]] [[Worship]] [[Praise]] [[David]] [[Psalms]] [[John]] [[Matthew]] [[Psalms 107]] [[John 4]] [[Matthew 4]] 
 
-# YWAM - 3rd Week - ACTIVATION WEEK - What Does Worship Mean In Our Lives?
+# YWAM - 3rd Week - ACTIVATION WEEK - What Does Worship Mean In Our Lives
 
 Worship is very different to Praise ([[Biblical Ways to Praise]])
 Worship is Submission and Surrender to God

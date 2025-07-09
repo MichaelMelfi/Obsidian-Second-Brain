@@ -12,7 +12,7 @@
 ##### What Did I Learn From This Teaching?:
 
 
-# YWAM - 6th Week - NATURE AND CHARACTER OF GOD (FATHER HEART OF GOD) 2-1 - Jonathan Vergauwen - Who Is God?
+# YWAM - 6th Week - NATURE AND CHARACTER OF GOD (FATHER HEART OF GOD) 2-1 - Jonathan Vergauwen - Who Is God
 
 
 # Who Is God?:

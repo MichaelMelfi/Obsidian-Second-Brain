@@ -4,7 +4,7 @@ Status: #baby
 
 Tags: [[Christian]] [[3 - TAGS/Preaching Ideas]] [[Holy Spirit]] [[Tabernacle]] [[Power]]
 
-# Preaching Idea - Do You Realise What You Have?
+# Preaching Idea - Do You Realise What You Have
 
 Back in the Old Testament, They had the Tabernacle which was the only way they could speak to God.
 Only Priest’s were allowed in.

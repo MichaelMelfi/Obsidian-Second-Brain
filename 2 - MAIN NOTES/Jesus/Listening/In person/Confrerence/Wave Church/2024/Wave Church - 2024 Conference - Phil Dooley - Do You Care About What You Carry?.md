@@ -4,7 +4,7 @@ Status: #FListening
 
 Tags: [[Wave Church]] [[Phil Dooley]] [[Conference]] [[Preach]] [[Christian]] [[2 Samuel]] [[Presence of God]] [[Overfamiliarity]]
 
-# Wave Church - Conference - Phill Dooley - Do You Care About What You Carry?
+# Wave Church - Conference - Phill Dooley - Do You Care About What You Carry
 When you are a Christian you carry the presents of God.
 
   

@@ -3,7 +3,7 @@
 Status: #FListening 
 
 Tags: [[Youtube]] [[Blood Covenant]] [[Bread and Wine]] [[Myles Munroe]] [[Christian]] [[Teaching]] [[Adam and Eve]] [[Resurrection]] [[The Cross]] [[Satan]] [[Isaiah]] [[Isaiah 53]] [[Romans]] [[Romans 6]] [[Romans 5]] [[Genesis]] [[Genesis 2]] [[Revelations]] [[Revelation 12]] [[Leviticus]] [[Leviticus 17]] [[Leviticus 14]] [[Hosea 13]] [[Hosea]] [[John]] [[John 1]]
-# YouTube - Myles Munroe - What Is The Blood Covenant?
+# YouTube - Myles Munroe - What Is The Blood Covenant
 
 The Kingdom, Reconciliation, Restoration and Recolonisation of earth with Heaven.
 

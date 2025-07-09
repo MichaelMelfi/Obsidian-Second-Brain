@@ -1,5 +1,5 @@
 [[AE2CC6A1-584C-4309-BBBC-E3BDD4458B52.jpg]]
-If you don’t know the gospel, how can you share it?
+If you don’t know the gospel, how can you share it
 
 > “For I am not ashamed of the gospel, for it is the power of God for salvation to everyone who believes, to the Jew first and also to the Greek.”
 ‭‭==Romans‬ ‭1‬:‭16‬ ‭ESV‬‬==

@@ -4,7 +4,7 @@ Status: #FListening
 
 Tags: [[Wave Church]] [[Christian]] [[Preach]] [[Conference]] [[Chad Veach]] [[Romans]] [[Humility]] [[Encuraging]] 
 
-# Wave Church - Conference - Chad Veach - What Can I Do For You?
+# Wave Church - Conference - Chad Veach - What Can I Do For You
 “For as we have many members in one body, but all the members do not have the same function, so we, being many, are one body in Christ, and individually members of one another. Having then gifts differing according to the grace that is given to us, let us use them: if prophecy, let us prophesy in proportion to our faith; or ministry, let us use it in our ministering; he who teaches, in teaching; he who exhorts, in exhortation; he who gives, with liberality; he who leads, with diligence; he who shows mercy, with cheerfulness.”
 
 ‭‭Romans‬ ‭12‬:‭4‬-‭8‬ ‭NKJV‬‬
