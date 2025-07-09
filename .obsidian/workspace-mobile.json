@@ -1,0 +1,324 @@
+{
+  "main": {
+    "id": "2288dacd81fdeebe",
+    "type": "split",
+    "children": [
+      {
+        "id": "a27575a14f4ebb6d",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "23ff661a6d772665",
+            "type": "leaf",
+            "pinned": true,
+            "state": {
+              "type": "graph",
+              "state": {},
+              "pinned": true,
+              "icon": "lucide-git-fork",
+              "title": "Graph view"
+            }
+          },
+          {
+            "id": "008efdbbbf77eedb",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "2 - MAIN NOTES/Jesus/Listening/Other/YouTube/Other/YouTube - Jason Lozano - The Mindset That Leads You To Victory.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "YouTube - Jason Lozano - The Mindset That Leads You To Victory"
+            }
+          },
+          {
+            "id": "991a59f0d902c208",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "2 - MAIN NOTES/Jesus/Listening/In person/Citygate Church/Sunday/PS Julian/Series/Filled With The Holy Spirit/Citygate Church - Julian Melfi -.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Citygate Church - Julian Melfi -"
+            }
+          },
+          {
+            "id": "69e6b598b5be7a33",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "2 - MAIN NOTES/Jesus/Listening/In person/Citygate Church/Sunday/PS Julian/Series/Filled With The Holy Spirit/Citygate Church - Julian Melfi -.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Citygate Church - Julian Melfi -"
+            }
+          },
+          {
+            "id": "9a92cf671fbda971",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Places to go in UK.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Places to go in UK"
+            }
+          },
+          {
+            "id": "bfec471af9d67b46",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "2 - MAIN NOTES/Jesus/Listening/YWAM DTS 2025/Week 4 - Freedom Week/YWAM - 4th Week - FREEDOM WEEK 3-7 - Brad Lachapelle - Injustice and Forgiveness.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "YWAM - 4th Week - FREEDOM WEEK 3-7 - Brad Lachapelle - Injustice and Forgiveness"
+            }
+          },
+          {
+            "id": "3518788a230efefe",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "2 - MAIN NOTES/Jesus/My Preaching/Preaching Ideas/Preaching Ideas - Go.md",
+                "mode": "source",
+                "source": false,
+                "backlinks": true,
+                "backlinkOpts": {
+                  "collapseAll": false,
+                  "extraContext": false,
+                  "sortOrder": "alphabetical",
+                  "showSearch": false,
+                  "searchQuery": "",
+                  "backlinkCollapsed": false,
+                  "unlinkedCollapsed": true
+                }
+              },
+              "icon": "lucide-file",
+              "title": "Preaching Ideas - Go"
+            }
+          },
+          {
+            "id": "50791ed3eb62c079",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Remote blog/README.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "README"
+            }
+          }
+        ],
+        "currentTab": 7
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "7a086238d8594f56",
+    "type": "mobile-drawer",
+    "children": [
+      {
+        "id": "71c9150447aef65f",
+        "type": "leaf",
+        "state": {
+          "type": "file-explorer",
+          "state": {
+            "sortOrder": "alphabetical",
+            "autoReveal": true
+          },
+          "icon": "lucide-folder-closed",
+          "title": "Files"
+        }
+      },
+      {
+        "id": "4aac2c3d43589a29",
+        "type": "leaf",
+        "state": {
+          "type": "search",
+          "state": {
+            "query": "",
+            "matchingCase": false,
+            "explainSearch": false,
+            "collapseAll": false,
+            "extraContext": false,
+            "sortOrder": "alphabetical"
+          },
+          "icon": "lucide-search",
+          "title": "Search"
+        }
+      },
+      {
+        "id": "5302ba06b46950aa",
+        "type": "leaf",
+        "state": {
+          "type": "tag",
+          "state": {
+            "sortOrder": "frequency",
+            "useHierarchy": true
+          },
+          "icon": "lucide-tags",
+          "title": "Tags"
+        }
+      },
+      {
+        "id": "d8f074d8808709c3",
+        "type": "leaf",
+        "state": {
+          "type": "bookmarks",
+          "state": {},
+          "icon": "lucide-bookmark",
+          "title": "Bookmarks"
+        }
+      },
+      {
+        "id": "d5906e855588fb52",
+        "type": "leaf",
+        "state": {
+          "type": "all-properties",
+          "state": {
+            "sortOrder": "frequency",
+            "showSearch": false,
+            "searchQuery": ""
+          },
+          "icon": "lucide-archive",
+          "title": "All properties"
+        }
+      }
+    ],
+    "currentTab": 0
+  },
+  "right": {
+    "id": "fd10779dd51e15a6",
+    "type": "mobile-drawer",
+    "children": [
+      {
+        "id": "b92836e6f2568ebb",
+        "type": "leaf",
+        "state": {
+          "type": "backlink",
+          "state": {
+            "file": "6 - MAIN NOTES/Research/Biblical Ways to Praise.md",
+            "collapseAll": false,
+            "extraContext": false,
+            "sortOrder": "alphabetical",
+            "showSearch": false,
+            "searchQuery": "",
+            "backlinkCollapsed": false,
+            "unlinkedCollapsed": true
+          },
+          "icon": "links-coming-in",
+          "title": "Backlinks"
+        }
+      },
+      {
+        "id": "922897259fd94cab",
+        "type": "leaf",
+        "state": {
+          "type": "outgoing-link",
+          "state": {
+            "file": "Remote blog/README.md",
+            "linksCollapsed": false,
+            "unlinkedCollapsed": true
+          },
+          "icon": "links-going-out",
+          "title": "Outgoing links"
+        }
+      },
+      {
+        "id": "8d3ef86c783822be",
+        "type": "leaf",
+        "state": {
+          "type": "outline",
+          "state": {
+            "file": "6 - MAIN NOTES/Research/Biblical Ways to Praise.md"
+          },
+          "icon": "lucide-list",
+          "title": "Outline"
+        }
+      }
+    ],
+    "currentTab": 1
+  },
+  "left-ribbon": {
+    "hiddenItems": {
+      "switcher:Open quick switcher": false,
+      "graph:Open graph view": false,
+      "canvas:Create new canvas": false,
+      "daily-notes:Open today's daily note": false,
+      "templates:Insert template": false,
+      "command-palette:Open command palette": false,
+      "smart-random-note:Open Random Note from Search": false,
+      "omnisearch:Omnisearch": false,
+      "obsidian-git:Open Git source control": false
+    }
+  },
+  "active": "50791ed3eb62c079",
+  "lastOpenFiles": [
+    "Places to go in UK.md",
+    "Remote blog/README.md",
+    "2 - MAIN NOTES/Jesus/My Preaching/Preaching Ideas/Preaching Ideas - Go.md",
+    "Remote blog",
+    "Hjlk",
+    "3 - TAGS/The Lords Prayer.md",
+    "2 - MAIN NOTES/Jesus/Listening/In person/Citygate Church/Sunday/PS Julian/Series/Filled With The Holy Spirit/Citygate Church - Julian Melfi -.md",
+    "2 - MAIN NOTES/Jesus/Listening/In person/Citygate Church/Sunday/PS Julian/Series/Filled With The Holy Spirit/Citygate Church - Julian Melfi.md",
+    "2 - MAIN NOTES/Jesus/Listening/In person/Citygate Church/Sunday/PS Julian/Series/Filled With The Holy Spirit/Citygate Church - Julian Melfi - Filled With The Holy Spirit.md",
+    "2 - MAIN NOTES/Jesus/Listening/In person/Citygate Church/Sunday/PS Julian/Series/Filled With The Holy Spirit",
+    "2 - MAIN NOTES/Jesus/Listening/Other/YouTube/Other/YouTube - Jason Lozano - The Mindset That Leads You To Victory.md",
+    "3 - TAGS/Renew Your Mind.md",
+    "3 - TAGS/Day and Night.md",
+    "3 - TAGS/Meditate.md",
+    "3 - TAGS/3 John 1.md",
+    "3 - TAGS/3 John.md",
+    "3 - TAGS/Mindsets.md",
+    "3 - TAGS/2 Corinthians 10.md",
+    "3 - TAGS/Jason Lozano.md",
+    "2 - MAIN NOTES/Jesus/Listening/YWAM DTS 2025/Week 4 - Freedom Week/YWAM - 4th Week - FREEDOM WEEK 3-7 - Brad Lachapelle - Injustice and Forgiveness.md",
+    "2 - MAIN NOTES/Jesus/Listening/YWAM DTS 2025/Week 4 - Freedom Week/YWAM - 4th Week - FREEDOM WEEK 1-2 - Brad Lachapelle - Our Original Design In Christ.md",
+    "2 - MAIN NOTES/Jesus/Listening/YWAM DTS 2025/Week 4 - Freedom Week/YWAM - 4th Week - FREEDOM WEEK 1-3 - Brad Lachapelle - Preaching The Gospel.md",
+    "2 - MAIN NOTES/Jesus/Listening/YWAM DTS 2025/Week 10 - Cost Of Discipleship or ALL IN/YWAM - 10th Week - 5-1 - Cost Of Discipleship - Activation Class.md",
+    "2 - MAIN NOTES/Jesus/Listening/YWAM DTS 2025/Week 12 - Call Of God/YWAM - Final Week - 1-1 - The Call Of God - Rady - Gods Calling On Your Life.md",
+    "2 - MAIN NOTES/Jesus/Listening/YWAM DTS 2025/Week 12 - Call Of God/YWAM - Final Week - 2-1 - The Call Of God - Yuka - You Have Been Called.md",
+    "2 - MAIN NOTES/Jesus/Listening/YWAM DTS 2025/Week 12 - Call Of God/YWAM - Final Week - 3-1 - The Call Of God - Yuka - You Have Been Called.md",
+    "2 - MAIN NOTES/Jesus/Listening/YWAM DTS 2025/Week 10 - Cost Of Discipleship or ALL IN/YWAM - 10th Week - 4-1 - Cost of Discipleship.md",
+    "2 - MAIN NOTES/Jesus/Listening/YWAM DTS 2025/Week 10 - Cost Of Discipleship or ALL IN/YWAM - 10th week - 3-1 - Cost of Discipleship - All In.md",
+    "2 - MAIN NOTES/Jesus/Listening/YWAM DTS 2025/Week 10 - Cost Of Discipleship or ALL IN/YWAM - 10th week - 2-1 - Cost Of Discipleship - Laying down your rights.md",
+    "2 - MAIN NOTES/Jesus/My Preaching/My preaches",
+    "2 - MAIN NOTES/Jesus/Listening",
+    "2 - MAIN NOTES/Jesus/My Preaching",
+    "2 - MAIN NOTES/Jesus/Listening/YWAM DTS 2025/Week 12 - Call Of God",
+    "6 - ARCHIVE/AE2CC6A1-584C-4309-BBBC-E3BDD4458B52.jpg",
+    "2 - MAIN NOTES/Jesus/Research/The Lords Prayer",
+    "2 - MAIN NOTES/Jesus/Listening/In person/Citygate Church/Sunday/PS Julian/Series/Pursue, Overtake and Recover All",
+    "6 - ARCHIVE/Pictures/21C589FF-CA35-49BF-B6DD-955B159C43C5.jpg",
+    "6 - ARCHIVE/Pictures/IMG_5497.jpg",
+    "6 - ARCHIVE/Pictures/IMG_5496.jpg",
+    "2 - MAIN NOTES/Jesus/Listening/YWAM DTS 2025/Week 9 - Relationships",
+    "6 - ARCHIVE/Pictures/IMG_6686.jpg",
+    "6 - ARCHIVE/Pictures/IMG_6030.jpg",
+    "6 - ARCHIVE/Pictures/IMG_6028.jpg",
+    "6 - ARCHIVE/Pictures/IMG_5895.jpg",
+    "6 - ARCHIVE/Pictures/Pasted image 20250212105905.png",
+    "6 - ARCHIVE/Pictures/IMG_5865.jpg"
+  ]
+}
