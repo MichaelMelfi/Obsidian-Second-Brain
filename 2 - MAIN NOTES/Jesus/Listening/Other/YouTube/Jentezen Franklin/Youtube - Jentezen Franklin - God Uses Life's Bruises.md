@@ -62,3 +62,5 @@ Jesus was wounded for our transgressions because He didn't have any.
 God is the same with you in the valley than anywhere else
 
 Judges 9
+bring branches and burned everyone inside.
+A woman got a rock and dropped it off the high tower and it killed Abimileck
