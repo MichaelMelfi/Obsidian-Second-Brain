@@ -71,3 +71,5 @@ https://www.bible.com/bible/59/JDG.9.52-57
 When you get wounded, do not ask for someone to finish you or give up.
 Keep going!
 You don't know what he could have accomplished if he didn't give up
+
+If youve had a bad mum or dad, a bad upbringing those wounds are the exact thing God is using to make you never bring your kids up that way.
