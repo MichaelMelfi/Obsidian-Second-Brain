@@ -2,7 +2,7 @@
 
 ##### Status:
 
-##### Tags: [[Welcome/3 - TAGS/Youtube|Youtube]] [[Jentezen Franklin]] [[Bruises]] [[Welcome/3 - TAGS/Preach|Preach]] [[Welcome/3 - TAGS/1 Kings|1 Kings]]
+##### Tags: [[Welcome/3 - TAGS/Youtube|Youtube]] [[Jentezen Franklin]] [[Bruises]] [[Welcome/3 - TAGS/Preach|Preach]] [[Welcome/3 - TAGS/1 Kings|1 Kings]] [[1 Kings 20]] [[Judges 9]] [[Judges]] [[1 Chronicles 2:16]] [[1 Co]]
 
 ##### Links:
 https://www.youtube.com/watch?v=iZuizV1jtQk
@@ -72,4 +72,5 @@ When you get wounded, do not ask for someone to finish you or give up.
 Keep going!
 You don't know what he could have accomplished if he didn't give up
 
-If youve had a bad mum or dad, a bad upbringing those wounds are the exact thing God is using to make you never bring your kids up that way.
+If you've had a bad mum or dad, a bad upbringing those wounds are the exact thing God is using to make you never bring your kids up that way.
+
