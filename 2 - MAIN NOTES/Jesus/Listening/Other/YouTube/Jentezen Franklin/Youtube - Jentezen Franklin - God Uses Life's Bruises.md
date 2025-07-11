@@ -43,6 +43,6 @@ David's sister - Zara (means 'my wounds') had 3 sons
 She had visible wounds from something that happened in childhood.
 
 These three names were 
-Abishai - He had 6 figers 
+Abishai - killed another giant
 Joab - 4 star general
-Asahel 
+Asahel - The fastest man in i
