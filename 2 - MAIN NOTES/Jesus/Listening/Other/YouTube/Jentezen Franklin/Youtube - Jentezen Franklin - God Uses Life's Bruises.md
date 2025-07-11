@@ -38,11 +38,15 @@ He has qualified you to lead, show your wounds to everyone!
 You don't get to pick the wounds life gives you, but you do get to pick your attitude about it.
 He didn't say you wouldn't have weapons formed against you but that they wouldn't prosper.
 
-1 Chronicles 2:16
+==1 Chronicles 2:16==
 David's sister - Zara (means 'my wounds') had 3 sons
 She had visible wounds from something that happened in childhood.
 
-These three names were 
+These three names for her children were 
 Abishai - killed another giant
 Joab - 4 star general
 Asahel - The fastest man in Israel
+
+What are your wounds going to produce?
+her life which was a wound produced the above people who were powerful.
+
