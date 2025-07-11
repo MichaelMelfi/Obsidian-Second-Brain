@@ -7,7 +7,8 @@
 ##### Links:
 https://www.youtube.com/watch?v=iZuizV1jtQk
 ##### What Did I Learn From This Teaching?:
-
+- God can easily use someone else if you disobey Him. 
+- You are replaceable.
 
 # Youtube - Jentezen Franklin - God Uses Life's Bruises
 
