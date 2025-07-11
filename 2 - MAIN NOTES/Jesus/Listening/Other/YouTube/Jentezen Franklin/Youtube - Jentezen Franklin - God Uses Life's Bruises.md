@@ -9,7 +9,11 @@ https://www.youtube.com/watch?v=iZuizV1jtQk
 ##### What Did I Learn From This Teaching?:
 - God can easily use someone else if you disobey Him. 
 - You are replaceable.
-
+- It is your wounds that will get you in the presence of the King.
+- Gods using what your going through to prepare you.
+- If God loves you, you will go through things because He wants you to grow.
+- You don't get to pick the wounds life gives you, but you do get to pick your attitude about it.
+- What are your wounds going to produce?
 # Youtube - Jentezen Franklin - God Uses Life's Bruises
 
 
