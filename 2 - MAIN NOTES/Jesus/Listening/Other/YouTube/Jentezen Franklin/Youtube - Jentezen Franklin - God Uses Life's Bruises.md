@@ -2,7 +2,7 @@
 
 ##### Status:
 
-##### Tags: [[Welcome/3 - TAGS/Youtube|Youtube]] [[Jentezen Franklin]] [[Bruises]] [[Welcome/3 - TAGS/Preach|Preach]] [[Welcome/3 - TAGS/1 Kings|1 Kings]] [[1 Kings 20]] [[Judges 9]] [[Judges]] [[1 Chronicles 2]] [[1 Chronicles]] [[2 Corinthians 12]] [[2 Corinthians]]
+##### Tags: [[Welcome/3 - TAGS/Youtube|Youtube]] [[Jentezen Franklin]] [[Bruises]] [[Welcome/3 - TAGS/Preach|Preach]] [[Welcome/3 - TAGS/1 Kings|1 Kings]] [[1 Kings 20]] [[Judges 9]] [[Judges]] [[1 Chronicles 2]] [[1 Chronicles]] [[2 Corinthians 12]] [[2 Corinthians]] [[Dont Give Up]]
 
 ##### Links:
 https://www.youtube.com/watch?v=iZuizV1jtQk
