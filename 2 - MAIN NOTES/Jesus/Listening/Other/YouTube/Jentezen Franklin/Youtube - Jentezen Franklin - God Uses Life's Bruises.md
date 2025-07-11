@@ -69,5 +69,5 @@ This was after they had just killed and burned the bad people.
 https://www.bible.com/bible/59/JDG.9.52-57
 
 When you get wounded, do not ask for someone to finish you or give up.
-Keep going
+Keep going!
 You don't know what he could have accomplished if he didn't give up
