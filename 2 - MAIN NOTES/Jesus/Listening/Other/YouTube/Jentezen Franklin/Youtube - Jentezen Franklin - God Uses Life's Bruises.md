@@ -51,5 +51,6 @@ What are your wounds going to produce?
 her life which was a wound produced the above people who were powerful.
 
 >'But he said to me, “My grace is sufficient for you, for my power is made perfect in weakness.” Therefore I will boast all the more gladly of my weaknesses, so that the power of Christ may rest upon me. For the sake of Christ, then, I am content with weaknesses, insults, hardships, persecutions, and calamities. For when I am weak, then I am strong. '
-2 Corinthians 12:9-10
+==2 Corinthians 12:9-10==
 https://www.bible.com/bible/59/2CO.12.9-10
+
