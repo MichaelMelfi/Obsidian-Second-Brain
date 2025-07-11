@@ -56,3 +56,9 @@ https://www.bible.com/bible/59/2CO.12.9-10
 
 God broke the mans hip meaning he then had to limp and lean on his stick.
 When God messes you up, he causes you to lean on Him.
+
+Jesus was wounded for our transgressions because He didn't have any.
+
+God is the same with you in the valley than anywhere else
+
+Judges 9
