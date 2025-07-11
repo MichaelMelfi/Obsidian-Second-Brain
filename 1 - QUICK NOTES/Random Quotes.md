@@ -25,4 +25,4 @@ He said I would plant a tree today.
 
 - give everything you have to God so the devil cannot also steal what’s left
 
-- Graduated to heave
+- Graduated to heaven
