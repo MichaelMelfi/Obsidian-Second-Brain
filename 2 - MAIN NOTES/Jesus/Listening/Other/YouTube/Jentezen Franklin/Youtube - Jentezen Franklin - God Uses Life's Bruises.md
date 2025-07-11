@@ -62,5 +62,12 @@ Jesus was wounded for our transgressions because He didn't have any.
 God is the same with you in the valley than anywhere else
 
 Judges 9
-bring branches and burned everyone inside.
-A woman got a rock and dropped it off the high tower and it killed Abimileck
+This was after they had just killed and burned the bad people.
+
+>'And Abimelech came to the tower and fought against it and drew near to the door of the tower to burn it with fire. And a certain woman threw an upper millstone on Abimelech’s head and crushed his skull. Then he called quickly to the young man his armor-bearer and said to him, “Draw your sword and kill me, lest they say of me, ‘A woman killed him.’” And his young man thrust him through, and he died. And when the men of Israel saw that Abimelech was dead, everyone departed to his home. Thus God returned the evil of Abimelech, which he committed against his father in killing his seventy brothers. And God also made all the evil of the men of Shechem return on their heads, and upon them came the curse of Jotham the son of Jerubbaal.'
+==Judges 9:52-57==
+https://www.bible.com/bible/59/JDG.9.52-57
+
+When you get wounded, do not ask for someone to finish you or give up.
+Keep going
+You don't know what he could have accomplished if he didn't give up
