@@ -45,4 +45,4 @@ She had visible wounds from something that happened in childhood.
 These three names were 
 Abishai - killed another giant
 Joab - 4 star general
-Asahel - The fastest man in i
+Asahel - The fastest man in Israel
