@@ -54,5 +54,5 @@ her life which was a wound produced the above people who were powerful.
 ==2 Corinthians 12:9-10==
 https://www.bible.com/bible/59/2CO.12.9-10
 
-God broke the mans hip meaning he then had to limp and lean 
+God broke the mans hip meaning he then had to limp and lean on his stick.
 When God messes you up, he causes you to lean on Him.
