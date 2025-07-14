@@ -71,6 +71,7 @@ You cannot find freedom yourself. You  must walk with others and God.
 
 1. Which of the four areas (Physical, emotional, spiritual social) are you most interested in exploring? why?
 Physical and spiritual because I know porn is bad for you but i would like you know the actual effects and how it ruins your brain.
-and spiritual because i would like know more about what God says.
+and spiritual because I would like know more about what God says.
 
-2. 
+2. Why do you think that the most successful addiction recovery programs are the ones that have a focus on God?
+Because God is the only one that can save you.
