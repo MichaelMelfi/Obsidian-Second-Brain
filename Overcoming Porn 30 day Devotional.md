@@ -84,7 +84,7 @@ Because God is the only one that can save you.
 It gives you a reason and a spiritual burden and also freedom.
 
 3. Why do you think "addiction thrives in isolation"?
-Because when you are on your own, Satan can get you and you can be disseved  easier.
+Because when you are on your own, Satan can get you and you can be disseaved  easier.
 You can hide it better when no one knows.
 
 4. Have you noticed that you use porn to medicate the pains and discomforts of life? how?
