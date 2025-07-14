@@ -60,7 +60,10 @@ do it on your own.
 Because then you know what you need to change but also so you know what the truth is when you are in trouble
 
 ## Day 4 - A Holistic Approach
-Romans 7
+>'For I know that nothing good dwells in me, that is, in my flesh. For I have the desire to do what is right, but not the ability to carry it out. For I do not do the good I want, but the evil I do not want is what I keep on doing. Now if I do what I do not want, it is no longer I who do it, but sin that dwells within me. So I find it to be a law that when I want to do right, evil lies close at hand. For I delight in the law of God, in my inner being, but I see in my members another law waging war against the law of my mind and making me captive to the law of sin that dwells in my members. Wretched man that I am! Who will deliver me from this body of death? Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God with my mind, but with my flesh I serve the law of sin.'
+==Romans 7:18-25==
+https://www.bible.com/bible/59/ROM.7.18-25
+
 Porn overcoming isn't an overnight deal.
 You should be fired up by that outcomes of the freedom not on the downers of leaving it.
 There are physical, social and spiritual realities that you must know and overcome.
