@@ -45,4 +45,8 @@ https://www.bible.com/bible/59/JAS.5.16
 How he said 'telling people helped'.
 It has made me really have a obligation to stop instead of it just being in the dark.
 
-2. 
+2. what lies that Nate belived can you relate to believing?
+It isnt that bad.
+I can hide it forever
+
+3. What lies did Nate believe that contradicts the truth in James 5:16 ''
