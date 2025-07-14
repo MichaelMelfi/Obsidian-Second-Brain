@@ -53,7 +53,9 @@ I can hide it forever
 >'Therefore, confess your sins to one another and pray for one another, that you may be healed. The prayer of a righteous person has great power as it is working. '
 ==James 5:16==
 https://www.bible.com/bible/59/JAS.5.16
-Hiding it. Because the verse says that you must be open with other people and others can help you. don't do it on your own.
+Hiding it. Because the verse says that you must be open with other people and others can help you. don't
+do it on your own.
 
 4. Why is it important to identify the strongholds in your mid and replace them with the truth?
 Because then you know what you need to change but also so you know what the truth is when you are in trouble
+
