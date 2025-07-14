@@ -60,7 +60,7 @@ do it on your own.
 Because then you know what you need to change but also so you know what the truth is when you are in trouble
 
 ## Day 4 - A Holistic Approach
-
+Romans 7
 Porn overcoming isn't an overnight deal.
 You should be fired up by that outcomes of the freedom not on the downers of leaving it.
 There are physical, social and spiritual realities that you must know and overcome.
@@ -82,4 +82,5 @@ Because when you are on your own, Satan can get you and you can be disseved  eas
 You can hide it better when no one knows.
 
 4. Have you noticed that you use porn to medicate the pains and discomforts of life? how?
-Yes, if i am upset I might be tempted, wh
+Yes, if I am upset I might be tempted, when I am alone I might be tempted.
+it is always when I am on my own
