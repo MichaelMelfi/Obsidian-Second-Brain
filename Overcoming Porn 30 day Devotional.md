@@ -59,3 +59,7 @@ do it on your own.
 4. Why is it important to identify the strongholds in your mid and replace them with the truth?
 Because then you know what you need to change but also so you know what the truth is when you are in trouble
 
+## Day 4 - A Holistic Approach
+
+Porn overcoming isn't an overnight deal.
+You should be fired up by that outcomes of the freedom not on the downers of 
