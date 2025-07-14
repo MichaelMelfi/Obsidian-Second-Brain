@@ -67,4 +67,6 @@ There are physical, social and spiritual realities that you must know and overco
 Paul said, I want to do what is right but I don't, I don't want to do what is wrong but I do
 The freedom from addiction is Jesus.
 Every major sober thing is all God cantered.
-You cannot find freedom your
+You cannot find freedom yourself. You  must walk with others and God.
+
+1. Which of the four areas (Physical, emotional, spiritual social) are tyou most interested in 
