@@ -62,4 +62,5 @@ Because then you know what you need to change but also so you know what the trut
 ## Day 4 - A Holistic Approach
 
 Porn overcoming isn't an overnight deal.
-You should be fired up by that outcomes of the freedom not on the downers of 
+You should be fired up by that outcomes of the freedom not on the downers of leaving it.
+There are physical, social and spiritual realities that you must know and overcome.
