@@ -39,4 +39,10 @@ Yes, I have told Tim and Elise
 ==James 5:16==
 https://www.bible.com/bible/59/JAS.5.16
 
-## Day 3 - 
+## Day 3 - Nates Story
+
+1. What resonated with you from Nates story?
+How he said 'telling people helped'.
+It has made me really have a obligation to stop instead of it just being in the dark.
+
+2. 
