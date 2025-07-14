@@ -49,4 +49,8 @@ It has made me really have a obligation to stop instead of it just being in the 
 It isnt that bad.
 I can hide it forever
 
-3. What lies did Nate believe that contradicts the truth in James 5:16 ''
+3. What lies did Nate believe that contradicts the truth in James 5:16
+>'Therefore, confess your sins to one another and pray for one another, that you may be healed. The prayer of a righteous person has great power as it is working. '
+==James 5:16==
+https://www.bible.com/bible/59/JAS.5.16
+Hiding it. Because the verse says that you must be open with other people and others can help you. dont do it i
