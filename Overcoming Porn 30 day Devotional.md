@@ -40,6 +40,9 @@ Yes, I have told Tim and Elise
 https://www.bible.com/bible/59/JAS.5.16
 
 ## Day 3 - Nates Story
+>'Therefore, confess your sins to one another and pray for one another, that you may be healed. The prayer of a righteous person has great power as it is working. '
+==James 5:16==
+https://www.bible.com/bible/59/JAS.5.16
 
 1. What resonated with you from Nates story?
 How he said 'telling people helped'.
