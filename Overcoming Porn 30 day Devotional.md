@@ -12,7 +12,7 @@
 # Overcoming Porn 30 day Devotional
 
 
-## Day 2 Strongholds
+## Day 2 - Strongholds
 >'For the weapons of our warfare are not of the flesh but have divine power to destroy strongholds. We destroy arguments and every lofty opinion raised against the knowledge of God, and take every thought captive to obey Christ, '
 ==2 Corinthians 10:4-5==
 https://www.bible.com/bible/59/2CO.10.4-5
@@ -38,3 +38,5 @@ Yes, I have told Tim and Elise
 >'Therefore, confess your sins to one another and pray for one another, that you may be healed. The prayer of a righteous person has great power as it is working. '
 ==James 5:16==
 https://www.bible.com/bible/59/JAS.5.16
+
+## Day 3 - 
