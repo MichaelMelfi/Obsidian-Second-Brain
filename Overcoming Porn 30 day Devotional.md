@@ -64,3 +64,6 @@ Because then you know what you need to change but also so you know what the trut
 Porn overcoming isn't an overnight deal.
 You should be fired up by that outcomes of the freedom not on the downers of leaving it.
 There are physical, social and spiritual realities that you must know and overcome.
+Paul said, I want to do what is right but I don't, I don't want to do what is wrong but I do
+The freedom from addiction is Jesus.
+Every major sober 
