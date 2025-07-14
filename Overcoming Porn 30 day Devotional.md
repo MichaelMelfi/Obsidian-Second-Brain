@@ -75,3 +75,7 @@ and spiritual because I would like know more about what God says.
 
 2. Why do you think that the most successful addiction recovery programs are the ones that have a focus on God?
 Because God is the only one that can save you.
+It gives you a reason and a spiritual burden and also freedom.
+
+3. Why do you think "addiction thrives in isolation"?
+Because when you are on your own, Satan can get you and you can be diseaved easier.
