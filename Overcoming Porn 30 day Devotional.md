@@ -66,4 +66,5 @@ You should be fired up by that outcomes of the freedom not on the downers of lea
 There are physical, social and spiritual realities that you must know and overcome.
 Paul said, I want to do what is right but I don't, I don't want to do what is wrong but I do
 The freedom from addiction is Jesus.
-Every major sober 
+Every major sober thing is all God cantered.
+You cannot find freedom your
