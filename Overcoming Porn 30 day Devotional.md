@@ -82,3 +82,4 @@ Because when you are on your own, Satan can get you and you can be disseved  eas
 You can hide it better when no one knows.
 
 4. Have you noticed that you use porn to medicate the pains and discomforts of life? how?
+Yes, if i am upset I might be tempted, wh
