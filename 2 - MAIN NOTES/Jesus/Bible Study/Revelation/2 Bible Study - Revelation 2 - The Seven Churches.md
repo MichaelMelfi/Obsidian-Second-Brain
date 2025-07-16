@@ -234,5 +234,32 @@ https://www.bible.com/bible/111/REV.2.16
 https://www.bible.com/bible/111/REV.2.17
 
 - The hidden manna is talking about Jesus being the bread of life.
-- We do not know what the white stone refers too. a white stone could be a gift that means anything, it could be an invitation to a pa
+- We do not know what exactly the white stone refers too. A white stone could be a gift that means anything, it could be an invitation to a party, it could be a showing of friendship or many other things.
 ### The Corrupt or Papal Church / Thyatira
+
+
+' “To the angel of the church in Thyatira write: These are the words of the Son of God, whose eyes are like blazing fire and whose feet are like burnished bronze. '
+
+Revelation 2:18
+https://www.bible.com/bible/111/REV.2.18
+
+'I know your deeds, your love and faith, your service and perseverance, and that you are now doing more than you did at first. '
+
+Revelation 2:19
+https://www.bible.com/bible/111/REV.2.19
+
+' Nevertheless, I have this against you: You tolerate that woman Jezebel, who calls herself a prophet. By her teaching she misleads my servants into sexual immorality and the eating of food sacrificed to idols. '
+
+Revelation 2:20
+https://www.bible.com/bible/111/REV.2.20
+
+'I have given her time to repent of her immorality, but she is unwilling. '
+
+Revelation 2:21
+https://www.bible.com/bible/111/REV.2.21
+
+'So I will cast her on a bed of suffering, and I will make those who commit adultery with her suffer intensely, unless they repent of her ways. '
+
+Revelation 2:22
+https://www.bible.com/bible/111/REV.2.22
+
