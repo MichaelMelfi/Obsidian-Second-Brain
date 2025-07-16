@@ -141,7 +141,8 @@ Because it is like some of the church is married to the pagan practices just lik
 
 AD 313-590 (Pergamum) - State Church (The emperor, Constantine,  became Christian)
 - When Constantine became Christian, he made it the state religion meaning all the persecution stopped however it is terrible effects on the faith as the state was running the church and it became corrupt. People would start turning to Christianity for political goals, not because of their faith.
-- People started to confess Christ as lord with their mouth but still doing their pagan worship and sinful
+- People started to confess Christ as lord with their mouth but still doing their pagan worship and sinful things, there was no transformation in their lives.
+- They would then also try and combine their worship beliefs with the Christian beliefs. 
 
 This was a place where idols were highly worshipped with statues everywhere.
 A place of idol worship and idol practices
