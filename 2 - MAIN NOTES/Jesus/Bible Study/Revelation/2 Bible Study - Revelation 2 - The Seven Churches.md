@@ -242,7 +242,7 @@ https://www.bible.com/bible/111/REV.2.17
 ==Revelation 2:18==
 https://www.bible.com/bible/111/REV.2.18
 
-- He is procalming diety
+- He is proclaiming deity, being a son of something means you share the same nature as the father and they are the originator of that nature (essential qualities, traits, or character)
 
 >'I know your deeds, your love and faith, your service and perseverance, and that you are now doing more than you did at first. '
 ==Revelation 2:19==
