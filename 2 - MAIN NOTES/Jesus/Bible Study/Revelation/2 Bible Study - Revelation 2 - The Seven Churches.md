@@ -97,7 +97,7 @@ https://www.bible.com/bible/59/REV.2.7
 AD 100-313 (Smyrna) - Persecuted Church (The body of Christ was Persecuted                                       everywhere)
 
 This was a time where the whole body of Christ was persecuted
-Many many Christians were being covered in tar, sown into animal skin and fed to Dogs, set on fire
+Many many Christians were being covered in tar, sown into animal skin and fed to Dogs, set on fire etc.
 
 Smyrna was a place of great wealth as it was next to the sea and was a trade route.
 This meant there was a lot of people there
@@ -125,5 +125,7 @@ https://www.bible.com/bible/111/REV.2.10
 ==Revelation 2:11==
 https://www.bible.com/bible/111/REV.2.11
 
+The first death is the death of the body.
+The second death is 
 ### The Compromising or State Church / Pergamum
 ### The Corrupt or Papal Church / Thyatira
