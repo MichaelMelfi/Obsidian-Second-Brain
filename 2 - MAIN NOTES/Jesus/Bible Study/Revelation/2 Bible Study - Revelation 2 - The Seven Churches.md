@@ -183,16 +183,13 @@ Yeast is the picture of sin because yeast permeates and that is what sin does.
     
 - Despite Balak’s requests, Balaam ends up **blessing Israel** instead of cursing them — **three times**.
 
- ⚠️ Balaam’s Downfall:
+ ⚠️ **Balaam’s Downfall**:
 
 **Numbers 31:8, 16**
 
 - Balaam is later **killed by the Israelites** during a battle with the Midianites.
     
 - He is blamed for advising the Moabite women to **seduce the Israelites into idolatry and sexual sin**, leading to a plague (also see Numbers 25).
-    
-
----
 
  🔁 Other Mentions:
 
