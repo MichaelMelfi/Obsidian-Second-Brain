@@ -29,5 +29,5 @@ Sujin - I took down the Barriers during my fasting but Jesus has taken down the 
 ## WORDS
 
 ## VISIONS
-#### From Stu the YWAM base leader - A vision of me and a group of people going out and spreading the word. Its not me as a leader but as a group of leaders changing the world.
+#### From Stu the YWAM base leader - A vision of me and a group of people going out and spreading the word. Its not me as a leader but as a group of leaders changing the world as a collective.
 ## DREAMS
