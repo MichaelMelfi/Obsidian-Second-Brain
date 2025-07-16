@@ -122,7 +122,7 @@ https://www.bible.com/bible/111/REV.2.9
 ==Revelation 2:10==
 https://www.bible.com/bible/111/REV.2.10
 
-- Never be afraid of what you suffer, everyone suffers in their life, being Christian doesn't exempt you from that but remember that Jesus has conoured death, hell and the grave so whatever you go through, God has got you.
+- Never be afraid of what you suffer, everyone suffers in their life, being Christian doesn't exempt you from that but remember that Jesus has concoured death, hell and the grave so whatever you go through, God has got you.
 - When there is a test, do not give in, keep firm on your beliefs and faith in Jesus and you will be rewarded in Heaven.
 
 >' Whoever has ears, let them hear what the Spirit says to the churches. The one who is victorious will not be hurt at all by the second death. '
@@ -150,6 +150,8 @@ https://www.bible.com/bible/111/REV.2.12
 >'I know where you live—where Satan has his throne. Yet you remain true to my name. You did not renounce your faith in me, not even in the days of Antipas, my faithful witness, who was put to death in your city—where Satan lives. '
 ==Revelation 2:13==
 https://www.bible.com/bible/111/REV.2.13
+
+This is saying tha there is such a high level of idolatury that 
 
 >' Nevertheless, I have a few things against you: There are some among you who hold to the teaching of Balaam, who taught Balak to entice the Israelites to sin so that they ate food sacrificed to idols and committed sexual immorality. '
 ==Revelation 2:14==
