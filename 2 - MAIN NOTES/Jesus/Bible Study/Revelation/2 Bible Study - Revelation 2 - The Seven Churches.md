@@ -233,5 +233,6 @@ https://www.bible.com/bible/111/REV.2.16
 ==Revelation 2:17==
 https://www.bible.com/bible/111/REV.2.17
 
-- 
+- The hidden manna is talking about Jesus being the bread of life.
+- We do not know what the white stone refers too. a white stone could be a gift that means anything, it could be an invitation to a pa
 ### The Corrupt or Papal Church / Thyatira
