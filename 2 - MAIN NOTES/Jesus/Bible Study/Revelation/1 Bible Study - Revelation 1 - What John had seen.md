@@ -109,9 +109,12 @@ https://www.bible.com/bible/59/REV.1.13
 >'The hairs of his head were white, like white wool, like snow. His eyes were like a flame of fire, '
 ==Revelation 1:14==
 https://www.bible.com/bible/59/REV.1.14
+- Eyes like flaming fire means the penetrating judgment of fire
+
 >'his feet were like burnished bronze, refined in a furnace, and his voice was like the roar of many waters. '
 ==Revelation 1:15==
 https://www.bible.com/bible/59/REV.1.15
+- Feet like burnished bronze or Brass speaks of strength to execute the judgment
 - In Daniel 10:5-6 it shows the same description.
 - When it says the sound of many waters, it is talking about a sound like a sound of rapids.
 
