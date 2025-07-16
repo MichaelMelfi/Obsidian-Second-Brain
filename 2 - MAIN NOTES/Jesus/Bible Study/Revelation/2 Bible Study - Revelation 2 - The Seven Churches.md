@@ -107,8 +107,17 @@ https://www.bible.com/bible/111/REV.2.8
 
 I am the one who died and came to life, He said this to the people who were being persecuted, reminding them that death is not the end that He has concurred death.
 
-'I know your afflictions and your poverty—yet you are rich! I know about the slander of those who say they are Jews and are not, but are a synagogue of Satan. '
-Revelation 2:9
+>'I know your afflictions and your poverty—yet you are rich! I know about the slander of those who say they are Jews and are not, but are a synagogue of Satan. '
+==Revelation 2:9==
 https://www.bible.com/bible/111/REV.2.9
+
+
+>'Do not be afraid of what you are about to suffer. I tell you, the devil will put some of you in prison to test you, and you will suffer persecution for ten days. Be faithful, even to the point of death, and I will give you life as your victor’s crown. '
+==Revelation 2:10==
+https://www.bible.com/bible/111/REV.2.10
+
+>' Whoever has ears, let them hear what the Spirit says to the churches. The one who is victorious will not be hurt at all by the second death. '
+==Revelation 2:11==
+https://www.bible.com/bible/111/REV.2.11
 ### The Compromising or State Church / Pergamum
 ### The Corrupt or Papal Church / Thyatira
