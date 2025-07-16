@@ -136,7 +136,7 @@ https://www.bible.com/bible/111/REV.2.11
 https://www.bible.com/bible/111/REV.20.14-15
 ### The Compromising or State Church / Pergamum
 Pergamum means Thurley married
-Because it is like some of the church is married to the pagan practices just like the Israelites stated to get married to the Moabite woman in Numbers because of Balaam.;
+Because it is like some of the church is married to the pagan practices just like the Israelites stated to get married to the Moabite woman in Numbers because of Balaam.
 
 AD 313-590 (Pergamum) - State Church (The emperor became Christian)
 
@@ -212,7 +212,7 @@ Yeast is the picture of sin because yeast permeates and that is what sin does.
 ==Revelation 2:15==
 https://www.bible.com/bible/111/REV.2.15
 
-- this links with Ephesus (==Revelation 2:6==) with the Nicolaitans, the church of Ephesus hated the teaching of the Nicolaitans and God did too but some of the people in Pergamum are actually embracing their teachings
+- this links with Ephesus (==Revelation 2:6==) with the Nicolaitans, the church of Ephesus hated the teaching of the Nicolaitans and God did too but some of the people in Pergamum are actually embracing their teachings.
 
 >'Repent therefore! Otherwise, I will soon come to you and will fight against them with the sword of my mouth. '
 ==Revelation 2:16==
