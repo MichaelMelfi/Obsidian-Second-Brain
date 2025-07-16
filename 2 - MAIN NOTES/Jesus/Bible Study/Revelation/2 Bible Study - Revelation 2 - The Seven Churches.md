@@ -155,12 +155,14 @@ https://www.bible.com/bible/111/REV.2.13
 
 - This is not saying, this is where Satan actually lives but is most likely saying that there is such a high level of idolatry and pagan worship. Its just saying that the city is completely given over to the idol and pagan worship.
 - When God says you are holding fast to His name it means holding onto everything about the nature, character and ministry of God. They are holding true to Jesus even when everything around them is the complete opposite.
-- Pagan could be anything that isn't God.
-- 
+- Pagan is anything that isn't God.
+- We do not know who Antipas is, we know he was martyred but that is it.
 
 >' Nevertheless, I have a few things against you: There are some among you who hold to the teaching of Balaam, who taught Balak to entice the Israelites to sin so that they ate food sacrificed to idols and committed sexual immorality. '
 ==Revelation 2:14==
 https://www.bible.com/bible/111/REV.2.14
+
+- 
 
 >'Likewise, you also have those who hold to the teaching of the Nicolaitans. '
 ==Revelation 2:15==
