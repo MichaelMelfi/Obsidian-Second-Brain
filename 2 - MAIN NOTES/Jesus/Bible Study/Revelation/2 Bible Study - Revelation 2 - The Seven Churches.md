@@ -263,7 +263,7 @@ https://www.bible.com/bible/111/REV.2.19
 ==Revelation 2:20==
 https://www.bible.com/bible/111/REV.2.20
 
-- 
+- We do not know if this was an actual woman at this time or if He is refering to Jezebell in the Old testiment
 
 >'I have given her time to repent of her immorality, but she is unwilling. '
 ==Revelation 2:21==
