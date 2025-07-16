@@ -211,7 +211,8 @@ Thyatira means - perpetual sacrifice
 AD 590-1517 (Thyatira) - Papal Church (The Roman Catholic Church ruled and rained                                    with the pope in the dark ages and was doing lots of bad                                    things)
 Papal comes from the word pope
 The dark ages became a time where paganism were mixed with Christianity
-and still to this day Roman cath
+and still to this day Roman Catholicism has pagan traditions from this time period.
+In this time period, they would force people to become Christian and if they would confess 
 
 This area was the least important for the Roman emperor and to our knowledge there isn't any evidence of persecution that went on in this City.
 There is arkeological findings of Idols and statues
