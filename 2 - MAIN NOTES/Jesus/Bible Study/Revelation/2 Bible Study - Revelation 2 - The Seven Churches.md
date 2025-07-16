@@ -148,6 +148,7 @@ A place of idol worship and idol practices
 https://www.bible.com/bible/111/REV.2.12
 
 Reference 'double edged Sword' ==Hebrews 4:12== and ==Revelation 1:16==
+The double edged sword is the Word of God
 
 >'I know where you live—where Satan has his throne. Yet you remain true to my name. You did not renounce your faith in me, not even in the days of Antipas, my faithful witness, who was put to death in your city—where Satan lives. '
 ==Revelation 2:13==
@@ -173,11 +174,13 @@ Yeast is the picture of sin because yeast permeates and that is what sin does.
 ==Revelation 2:15==
 https://www.bible.com/bible/111/REV.2.15
 
-- this links with Ephesus (==Revelation 2:6==) with the Nicolaitans, the church of Ephesus hated the teaching of them and God did too but some of the people in Pergamum are actually embracing their teachings
+- this links with Ephesus (==Revelation 2:6==) with the Nicolaitans, the church of Ephesus hated the teaching of the Nicolaitans and God did too but some of the people in Pergamum are actually embracing their teachings
 
 >'Repent therefore! Otherwise, I will soon come to you and will fight against them with the sword of my mouth. '
 ==Revelation 2:16==
 https://www.bible.com/bible/111/REV.2.16
+
+- Turn away from these teachings otherwise I will come and war against you with the Word of God
 
 >' Whoever has ears, let them hear what the Spirit says to the churches. To the one who is victorious, I will give some of the hidden manna. I will also give that person a white stone with a new name written on it, known only to the one who receives it. '
 ==Revelation 2:17==
