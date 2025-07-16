@@ -1,7 +1,9 @@
 2025-07-11 16:18
 
 ##### Status/Explanation:
-This biblically based and scientifically informed approach to porn addiction recovery/discipleship helps you renew your mind with God’s truth. The challenge is to go 30 days without porn or other sexual sin while addressing the roots of addiction. The 10 minutes or less of content each day will include at least one of the following: (1) A video and reflection questions (2) A scripture meditation (3) A devotional/testimony
+This biblically based and scientifically informed approach to porn addiction recovery/discipleship helps you renew your mind with God’s truth. The challenge is to go 30 days without porn or other sexual sin while addressing the roots of addiction. The 10 minutes or less of content each day will include at least one of the following: (1) A video and reflection questions 
+(2) A scripture meditation 
+(3) A devotional/testimony
 ##### Tags: [[Devotional]] [[Porn]] [[Overcoming]] 
 
 ##### Links:
