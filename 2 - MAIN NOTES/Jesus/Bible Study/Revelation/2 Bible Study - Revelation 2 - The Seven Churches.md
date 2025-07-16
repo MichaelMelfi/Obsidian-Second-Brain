@@ -96,6 +96,9 @@ https://www.bible.com/bible/59/REV.2.7
 ### The Persecuted Church / Smyrna
 AD 100-313 (Smyrna) - Persecuted Church (The body of Christ was Persecuted                                       everywhere)
 
+This was a time where the whole body of Christ was persecuted
+Many many Christians were being covered in tar, sown into animal skin and fed to Dogs, set on fire
+
 Smyrna was a place of great wealth as it was next to the sea and was a trade route.
 This meant there was a lot of people there
 Smyrna is like the fragrance **Myrrh** which is very expensive and valuable, however, it was also a fragrance that they would put on dead bodies.
