@@ -266,7 +266,42 @@ https://www.bible.com/bible/111/REV.2.20
 - We do not know if this was an actual woman at this time or if He is refering to Jezebel in the Old testiment
 
 #### Who was Jezebel?
-##### Chat
+##### Chat GBT
+Jezebel was a powerful and notorious queen in the Old Testament, best known for her **evil influence**, **idolatry**, and **opposition to the prophets of God**.
+
+👑 **Who Was Jezebel?**
+
+- **Wife of King Ahab** of Israel (northern kingdom)
+    
+- **Daughter of Ethbaal**, king of the Sidonians (Phoenicia)
+    
+- Introduced and promoted the worship of **Baal**, a pagan god
+    
+- Appears mainly in **1 Kings 16–21** and **2 Kings 9**
+    
+
+---
+
+**💀 What Was She Known For?**
+
+1. **Promoting Idolatry**  
+    She brought Baal worship to Israel and supported **hundreds of pagan prophets**, leading the nation into sin (1 Kings 18:19).
+    
+2. **Persecuting God’s Prophets**  
+    She **threatened to kill Elijah**, the prophet of Yahweh, after his victory over the prophets of Baal on Mount Carmel (1 Kings 19:1–2).
+    
+3. **Abusing Power**  
+    She arranged the **murder of Naboth** to steal his vineyard for her husband Ahab (1 Kings 21).
+    
+4. **Judgment and Death**  
+    The prophet Elijah **prophesied her violent death**. Years later, she was thrown from a window, trampled by horses, and eaten by dogs — just as prophesied (2 Kings 9:30–37).
+    
+
+---
+
+**🧠 Symbolism**
+
+In later Jewish and Christian tradition (e.g. **Revelation 2:20**), Jezebel becomes a **symbol of corruption, seduction, and false teaching**.
 
 >'I have given her time to repent of her immorality, but she is unwilling. '
 ==Revelation 2:21==
