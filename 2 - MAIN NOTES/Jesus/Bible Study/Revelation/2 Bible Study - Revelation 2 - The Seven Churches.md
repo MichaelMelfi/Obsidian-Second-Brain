@@ -257,43 +257,61 @@ https://www.bible.com/bible/111/REV.2.18
 ==Revelation 2:19==
 https://www.bible.com/bible/111/REV.2.19
 
-- He is telling them that some 
+- He is telling them that some of the church is growing and their works are showing it.
 
 >' Nevertheless, I have this against you: You tolerate that woman Jezebel, who calls herself a prophet. By her teaching she misleads my servants into sexual immorality and the eating of food sacrificed to idols. '
 ==Revelation 2:20==
 https://www.bible.com/bible/111/REV.2.20
 
+- 
+
 >'I have given her time to repent of her immorality, but she is unwilling. '
 ==Revelation 2:21==
 https://www.bible.com/bible/111/REV.2.21
+
+
 
 >'So I will cast her on a bed of suffering, and I will make those who commit adultery with her suffer intensely, unless they repent of her ways. '
 ==Revelation 2:22==
 https://www.bible.com/bible/111/REV.2.22
 
+
+
 >'I will strike her children dead. Then all the churches will know that I am he who searches hearts and minds, and I will repay each of you according to your deeds. '
 ==Revelation 2:23==
 https://www.bible.com/bible/111/REV.2.23
+
+
 
 >' Now I say to the rest of you in Thyatira, to you who do not hold to her teaching and have not learned Satan’s so-called deep secrets, ‘I will not impose any other burden on you, '
 ==Revelation 2:24==
 https://www.bible.com/bible/111/REV.2.24
 
+
+
 >'except to hold on to what you have until I come.’ '
 ==Revelation 2:25==
 https://www.bible.com/bible/111/REV.2.25
+
+
 
 >' To the one who is victorious and does my will to the end, I will give authority over the nations— '
 ==Revelation 2:26==
 https://www.bible.com/bible/111/REV.2.26
 
+
+
 >'that one ‘will rule them with an iron scepter and will dash them to pieces like pottery’ —just as I have received authority from my Father. '
 ==Revelation 2:27==
 https://www.bible.com/bible/111/REV.2.27
 
+
+
 >'I will also give that one the morning star. '
 ==Revelation 2:28==
 https://www.bible.com/bible/111/REV.2.28
+
+
 
 >'Whoever has ears, let them hear what the Spirit says to the churches.'
 ==Revelation 2:29==
