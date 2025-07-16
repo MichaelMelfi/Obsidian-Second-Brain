@@ -169,6 +169,7 @@ Yeast is the picture of sin because yeast permeates and that is what sin does.
 *"Permeate" means to spread through and affect every part of something, like a smell filling a room or a concept influencing a culture. It implies a thorough and often gradual penetration or diffusion.*
 
 - He is warning the church to now let it spread
+- This Balaam is the Balamm in the old test
 
 >'Likewise, you also have those who hold to the teaching of the Nicolaitans. '
 ==Revelation 2:15==
