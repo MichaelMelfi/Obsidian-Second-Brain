@@ -237,6 +237,7 @@ https://www.bible.com/bible/111/REV.2.17
 - We do not know what exactly the white stone refers too. A white stone could be a gift that means anything, it could be an invitation to a party, it could be a showing of friendship or many other things.
 ### The Corrupt or Papal Church / Thyatira
 
+This area was the least important for the Roman emperor and to our knowledge there wasnt any persecution that went on in this City.
 
 >' “To the angel of the church in Thyatira write: These are the words of the Son of God, whose eyes are like blazing fire and whose feet are like burnished bronze. '
 ==Revelation 2:18==
