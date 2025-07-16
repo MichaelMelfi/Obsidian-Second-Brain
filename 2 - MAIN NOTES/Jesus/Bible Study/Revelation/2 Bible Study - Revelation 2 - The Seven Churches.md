@@ -173,7 +173,7 @@ Yeast is the picture of sin because yeast permeates and that is what sin does.
 #### Who is Balaam?
 - This Balaam is the Balaam in the old testament who was a Sear and was highered by Moad to curse the Israelites when they were almost at the promise land.
 
-### 📖 **Main Story of Balaam:**
+ 📖 **Main Story of Balaam:**
 
 **Numbers 22–24**
 
@@ -182,11 +182,8 @@ Yeast is the picture of sin because yeast permeates and that is what sin does.
 - On the way, Balaam's **donkey sees an angel** and miraculously speaks to him (Numbers 22:21–33).
     
 - Despite Balak’s requests, Balaam ends up **blessing Israel** instead of cursing them — **three times**.
-    
 
----
-
-### ⚠️ Balaam’s Downfall:
+ ⚠️ Balaam’s Downfall:
 
 **Numbers 31:8, 16**
 
@@ -197,7 +194,7 @@ Yeast is the picture of sin because yeast permeates and that is what sin does.
 
 ---
 
-### 🔁 Other Mentions:
+ 🔁 Other Mentions:
 
 - **Deuteronomy 23:4–5** – God turned Balaam’s curse into a blessing.
     
