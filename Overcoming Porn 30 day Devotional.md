@@ -105,4 +105,4 @@ it is always when I am on my own
 - We cannot hide our sin, we must speak openly about it.
 
 for 95% of people it takes between 6 months to 2 years to fully experience freedom from porn.
-Stopping an 
+Stopping an addiction is stopping a habit that you have trained yourself to automatically do for years, it does not happen overnight, you must rewire your brain and this only happens through Jesus and being surrounded by supportive people.
