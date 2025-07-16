@@ -207,6 +207,7 @@ https://www.bible.com/bible/111/REV.2.17
 - We do not know what exactly the white stone refers too. A white stone could be a gift that means anything, it could be an invitation to a party, it could be a showing of friendship or many other things.
 ### The Corrupt or Papal Church / Thyatira
 Thyatira means - perpetual sacrifice
+The Roman Catholic Eucharist 
 
 AD 590-1517 (Thyatira) - Papal Church (The Roman Catholic Church ruled and rained                                    with the pope in the dark ages and was doing lots of bad                                    things)
 - Papal comes from the word pope
