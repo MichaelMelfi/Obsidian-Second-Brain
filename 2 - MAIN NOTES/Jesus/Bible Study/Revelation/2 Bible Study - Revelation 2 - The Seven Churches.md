@@ -207,7 +207,7 @@ https://www.bible.com/bible/111/REV.2.17
 - We do not know what exactly the white stone refers too. A white stone could be a gift that means anything, it could be an invitation to a party, it could be a showing of friendship or many other things.
 ### The Corrupt or Papal Church / Thyatira
 Thyatira means - ==perpetual== sacrifice
-- The Roman Catholic Eucharist is the very sacrifice of the Body and Blood of the Lord Jesus which he instituted to ==PERPETUARE== the sacrifice of the cross throughout the ages until His return in glory.
+- The Roman Catholic Eucharist is the very sacrifice of the Body and Blood of the Lord Jesus which he instituted to ==PERPETUATE== the sacrifice of the cross throughout the ages until His return in glory.
 - The Bible teaches that the sacrifice of Jesus Christ was once and is forever and completely finished. It is not ongoing or perpetual but 'It Is Finished.' (John 19:30)
 
 AD 590-1517 (Thyatira) - Papal Church (The Roman Catholic Church ruled and rained                                    with the pope in the dark ages and was doing lots of bad                                    things)
