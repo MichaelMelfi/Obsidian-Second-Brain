@@ -91,7 +91,7 @@ You can hide it better when no one knows.
 Yes, if I am upset I might be tempted, when I am alone I might be tempted.
 it is always when I am on my own
 
-## Day 5 - I Messed Up
+## Day 5 - I Messed Up, Forgiveness and confession
 
 
 >**Whoever conceals his transgressions will not prosper, but he who confesses and forsakes them will obtain mercy." - 
@@ -136,3 +136,5 @@ I am forgiven and will keeping moving forward, every temptation I have is a tria
 
 >“The righteous falls seven times and rises again.”
 >==Proverbs 24:16==
+
+## Day 6 - Detox
