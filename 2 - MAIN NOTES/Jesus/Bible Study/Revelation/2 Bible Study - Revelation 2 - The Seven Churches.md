@@ -173,39 +173,9 @@ Yeast is the picture of sin because yeast permeates and that is what sin does.
 *"Permeate" means to spread through and affect every part of something, like a smell filling a room or a concept influencing a culture. It implies a thorough and often gradual penetration or diffusion.*
 
 - He is warning the church to not let it spread
-#### Who is Balaam?
+#### [[Who is Balaam facts sheet]]?
 - This Balaam is the Balaam in the old testament who was a Sear and was highered by Moad to curse the Israelites when they were almost at the promise land.
-##### Chat GBT
- 📖 **Main Story of Balaam:**
-**Numbers 22–24**
 
-- Balaam is a non-Israelite prophet or diviner hired by **Balak**, the king of Moab, to **curse Israel** as they approach the Promised Land.
-    
-- On the way, Balaam's **donkey sees an angel** and miraculously speaks to him (Numbers 22:21–33).
-    
-- Despite Balak’s requests, Balaam ends up **blessing Israel** instead of cursing them — **three times**.
-
- ⚠️ **Balaam’s Downfall**:
-
-**Numbers 31:8, 16**
-
-- Balaam is later **killed by the Israelites** during a battle with the Midianites.
-    
-- He is blamed for advising the Moabite women to **seduce the Israelites into idolatry and sexual sin**, leading to a plague (also see Numbers 25).
-
- 🔁 **Other Mentions**:
-
-- **Deuteronomy 23:4–5** – God turned Balaam’s curse into a blessing.
-    
-- **Joshua 13:22** – Balaam is called a "soothsayer" and is noted for being killed in battle.
-    
-- **Joshua 24:9–10** – Reminder that God would not let Balaam curse Israel.
-    
-- **Micah 6:5** – Balaam’s story is referenced to show God's righteousness.
-    
-- **2 Peter 2:15, Jude 1:11, Revelation 2:14** – In the New Testament, Balaam becomes a **symbol of greed, corruption, and leading others into sin**.
-
-##### Preach
 - Even when Balaak kept trying to get Balaam to curse Israel but all that would come out of his mouth was blessings.
 - He then turned against them and went to the king, he told the king that there is no way you can curse the Israelites as God wont allow that but if you are able to turn them against their God and get them from within, then you can get them.
 - So they sent woman to the Israelites and got them involved with pagan practises and all sexual sins and immorality.
