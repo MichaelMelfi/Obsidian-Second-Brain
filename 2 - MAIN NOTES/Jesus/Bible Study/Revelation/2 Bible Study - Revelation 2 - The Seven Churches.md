@@ -214,7 +214,7 @@ https://www.bible.com/bible/111/REV.2.15
 
 - this links with Ephesus (==Revelation 2:6==) with the Nicolaitans, the church of Ephesus hated the teaching of the Nicolaitans and God did too but some of the people in Pergamum are actually embracing their teachings.
 - The route of the name ==Nicolaitans== comes from a phrase that infers / carries the idea of a higheracle separation between the church leaders and the flock.
-This can be linked with clergy and layette. There should not be such a s
+This can be linked with clergy and layette. There should not be such a seperation.
 Leadership in the church should look like the below.
 >'Jesus called them together and said, “You know that the rulers of the Gentiles lord it over them, and their high officials exercise authority over them. Not so with you. Instead, whoever wants to become great among you must be your servant, and whoever wants to be first must be your slave— just as the Son of Man did not come to be served, but to serve, and to give his life as a ransom for many.” '
 ==Matthew 20:25-28==
