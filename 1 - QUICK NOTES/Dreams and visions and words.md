@@ -18,3 +18,5 @@ Sujin - I took down the Barriers during my fasting but Jesus has taken down the 
 
 1. I will pastor Citygate and through me there will be missions being sent out.
 Stick with Sujin and stay his friend for he will help.
+
+2. 
