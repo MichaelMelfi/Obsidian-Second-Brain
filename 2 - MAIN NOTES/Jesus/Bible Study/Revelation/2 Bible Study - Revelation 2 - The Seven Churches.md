@@ -44,6 +44,7 @@ AD 1900-Present (Laodicea) - Apostate Church
 ## The Seven Churches
 ![[sevenchurches1.webp]]
 ### The Loveless Church / Ephesus
+AD 30-100 (Ephesus) - Apostolic Church (The Church began)
 >' “To the angel of the church in Ephesus write: ‘The words of him who holds the seven stars in his right hand, who walks among the seven golden lampstands.'
 ==Revelation 2:1==
 https://www.bible.com/bible/59/REV.2.1
@@ -93,13 +94,16 @@ https://www.bible.com/bible/59/REV.2.7
 - Why did God not want Adam and eve to eat from the tree of life? its because they were sinners and in order for them to be redeemed they must first die. God kept us away from the tree of life all those years as actually an act of mercy because without death there cannot be life as we are sinners and we must first die to be redeemed. But the problem was that the death that we deserve ==(Wages of sin is death)== wouldn't allow us to enjoy anything after we die because that death means eternal separation from God so by Jesus dyeing he bore that separation and we are now able to eat from the tree of life as we will cast off our sinful nature when we physically die, we will them be ready to eat from the tree of life and live forever. ==(Revelation 22:1-2)==
 
 ### The Persecuted Church / Smyrna
+AD 100-313 (Smyrna) - Persecuted Church (The body of Christ was Persecuted                                       everywhere)
 
 Smyrna was a place of great wealth as it was next to the sea and was a trade route.
 This meant there was a lot of people there
 Smyrna is like the fragrance **Myrrh** which is very expensive and valuable, however, it was also a fragrance that they would put on dead bodies.
+It was full of Jews and gentiles who hated the Christians.
 >' “To the angel of the church in Smyrna write: These are the words of him who is the First and the Last, who died and came to life again. '
 ==Revelation 2:8==
 https://www.bible.com/bible/111/REV.2.8
+
 
 ### The Compromising or State Church / Pergamum
 ### The Corrupt or Papal Church / Thyatira
