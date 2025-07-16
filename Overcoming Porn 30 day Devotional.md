@@ -93,9 +93,16 @@ it is always when I am on my own
 
 ## Day 5 - I Messed Up
 
-When we fall we usually Deny, Minimize and rationalize the reason that lead to doing it but 
+
 >**Whoever conceals his transgressions will not prosper, but he who confesses and forsakes them will obtain mercy." - 
 ==Proverbs 28:13==
 
+When we fall we usually Deny, Minimize and rationalize the reason that lead to doing it but this will only make it worse.
+
+
+
 >**“If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all unrighteousness.” 
 ==1 John 1:9**==
+
+We cannot hide our sin, we must speak openly about it.
+for 95% of people it takes between 6 months t
