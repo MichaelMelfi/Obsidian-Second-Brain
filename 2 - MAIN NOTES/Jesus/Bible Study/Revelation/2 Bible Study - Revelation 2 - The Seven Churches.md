@@ -96,9 +96,10 @@ https://www.bible.com/bible/59/REV.2.7
 
 Smyrna was a place of great wealth as it was next to the sea and was a trade route.
 This meant there was a lot of people there
-Smyrna is like the fragrence Myre which is very expensive and valuable however it 
+Smyrna is like the fragrance **Myrrh** which is very expensive and valuable, however, it was also a fragrance that they would put on dead bodies.
 >' “To the angel of the church in Smyrna write: These are the words of him who is the First and the Last, who died and came to life again. '
 ==Revelation 2:8==
 https://www.bible.com/bible/111/REV.2.8
+
 ### The Compromising or State Church / Pergamum
 ### The Corrupt or Papal Church / Thyatira
