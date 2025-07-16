@@ -20,7 +20,7 @@ Sujin - I took down the Barriers during my fasting but Jesus has taken down the 
 
 #### A butterfly coming out of its cocoon and it flys  away but this one butterfly also wakes up the  rest of the butterfly’s and gets them out of the cocoons and leads them into freedom.
 
-#### Me Preaching 
+#### Me Preaching or teaching in a massive stadium in a hot country.
 ## Dreams
 
 
@@ -29,5 +29,5 @@ Sujin - I took down the Barriers during my fasting but Jesus has taken down the 
 ## WORDS
 
 ## VISIONS
-
+#### A vision of me and a group of people going out and spreading the word. 
 ## DREAMS
