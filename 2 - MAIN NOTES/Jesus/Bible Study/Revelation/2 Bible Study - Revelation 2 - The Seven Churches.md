@@ -173,8 +173,6 @@ Yeast is the picture of sin because yeast permeates and that is what sin does.
 - This Balaam is the Balaam in the old testament who was a Sear and was highered by Moad to curse the Israelites when they were almost at the promise land.
 ##### Chat GBT
  📖 **Main Story of Balaam:**
- ##### Preach
-
 **Numbers 22–24**
 
 - Balaam is a non-Israelite prophet or diviner hired by **Balak**, the king of Moab, to **curse Israel** as they approach the Promised Land.
@@ -202,6 +200,8 @@ Yeast is the picture of sin because yeast permeates and that is what sin does.
 - **Micah 6:5** – Balaam’s story is referenced to show God's righteousness.
     
 - **2 Peter 2:15, Jude 1:11, Revelation 2:14** – In the New Testament, Balaam becomes a **symbol of greed, corruption, and leading others into sin**.
+
+###
 #### Continuation
 >'Likewise, you also have those who hold to the teaching of the Nicolaitans. '
 ==Revelation 2:15==
