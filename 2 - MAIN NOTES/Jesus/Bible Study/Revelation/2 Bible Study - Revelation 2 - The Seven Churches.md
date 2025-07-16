@@ -164,7 +164,10 @@ https://www.bible.com/bible/111/REV.2.14
 
 - Why is He making the point of only some in the church? what is the point, why bring it up?
 It only takes a little bit of yeast to work through the whole batch of dough.
-Yeast is the picture of sin because yeast permiates and that is what sin does.
+Yeast is the picture of sin because yeast permeates and that is what sin does.
+*"Permeate" means to spread through and affect every part of something, like a smell filling a room or a concept influencing a culture. It implies a thorough and often gradual penetration or diffusion.*
+
+- He s war
 
 >'Likewise, you also have those who hold to the teaching of the Nicolaitans. '
 ==Revelation 2:15==
