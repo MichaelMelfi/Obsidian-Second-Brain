@@ -265,7 +265,7 @@ https://www.bible.com/bible/111/REV.2.20
 
 - We do not know if this was an actual woman at this time or if He is refering to Jezebel in the Old testiment
 
-#### Who was Jezebel?
+#### [[Who was Jezebel]]
 ##### Chat GBT
 Jezebel was a powerful and notorious queen in the Old Testament, best known for her **evil influence**, **idolatry**, and **opposition to the prophets of God**.
 
