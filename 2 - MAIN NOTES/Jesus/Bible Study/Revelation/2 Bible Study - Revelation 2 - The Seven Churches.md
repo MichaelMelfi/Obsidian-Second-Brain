@@ -236,6 +236,7 @@ https://www.bible.com/bible/111/REV.2.20
 - We do not know if this was an actual woman at this time or if He is refering to Jezebel in the Old testiment
 
 [[Who was Jezebel facts sheet]]??
+Jezebel was teaching believers into sexual immorality and made them join in in pagan festivals where they would eat food that had been sacrificed to idols.
 
 >'I have given her time to repent of her immorality, but she is unwilling. '
 ==Revelation 2:21==
