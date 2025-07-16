@@ -147,7 +147,7 @@ A place of idol worship and idol practices
 ==Revelation 2:12==
 https://www.bible.com/bible/111/REV.2.12
 
-Refrence 
+Reference to 'double edged Sword' Hebrews 4:12 and Revelation 1:16
 
 >'I know where you live—where Satan has his throne. Yet you remain true to my name. You did not renounce your faith in me, not even in the days of Antipas, my faithful witness, who was put to death in your city—where Satan lives. '
 ==Revelation 2:13==
