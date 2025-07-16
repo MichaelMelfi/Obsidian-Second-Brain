@@ -90,3 +90,5 @@ You can hide it better when no one knows.
 4. Have you noticed that you use porn to medicate the pains and discomforts of life? how?
 Yes, if I am upset I might be tempted, when I am alone I might be tempted.
 it is always when I am on my own
+
+## Day 5 - I Messed 
