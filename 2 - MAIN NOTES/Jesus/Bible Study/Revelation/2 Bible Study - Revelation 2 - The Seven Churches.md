@@ -135,7 +135,7 @@ https://www.bible.com/bible/111/REV.2.11
 ==Revelation 20:14-15==
 https://www.bible.com/bible/111/REV.20.14-15
 ### The Compromising or State Church / Pergamum
-Pergamum means married
+Pergamum means thuruly married
 
 AD 313-590 (Pergamum) - State Church (The emperor became Christian)
 
@@ -168,7 +168,7 @@ It only takes a little bit of yeast to work through the whole batch of dough.
 Yeast is the picture of sin because yeast permeates and that is what sin does.
 *"Permeate" means to spread through and affect every part of something, like a smell filling a room or a concept influencing a culture. It implies a thorough and often gradual penetration or diffusion.*
 
-- He is warning the church to now let it spread
+- He is warning the church to not let it spread
 #### Who is Balaam?
 - This Balaam is the Balaam in the old testament who was a Sear and was highered by Moad to curse the Israelites when they were almost at the promise land.
 ##### Chat GBT
@@ -204,9 +204,9 @@ Yeast is the picture of sin because yeast permeates and that is what sin does.
 ##### Preach
 - Even when Balaak kept trying to get Balaam to curse Israel but all that would come out of his mouth was blessings.
 - He then turned against them and went to the king, he told the king that there is no way you can curse the Israelites as God wont allow that but if you are able to turn them against their God and get them from within, then you can get them.
-- So they sent woman to the Israelites and got them involed with pagan practises and all sexual sins and imporality
-
+- So they sent woman to the Israelites and got them involved with pagan practises and all sexual sins and immorality.
 #### Continuation
+
 >'Likewise, you also have those who hold to the teaching of the Nicolaitans. '
 ==Revelation 2:15==
 https://www.bible.com/bible/111/REV.2.15
