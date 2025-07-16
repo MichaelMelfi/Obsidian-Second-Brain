@@ -170,8 +170,44 @@ Yeast is the picture of sin because yeast permeates and that is what sin does.
 
 - He is warning the church to now let it spread
 
-#Who is Balaam?
+#### Who is Balaam?
 - This Balaam is the Balaam in the old testament who was a Sear and was highered by Moad to curse the Israelites when they were almost at the promise land.
+
+### 📖 **Main Story of Balaam:**
+
+**Numbers 22–24**
+
+- Balaam is a non-Israelite prophet or diviner hired by **Balak**, the king of Moab, to **curse Israel** as they approach the Promised Land.
+    
+- On the way, Balaam's **donkey sees an angel** and miraculously speaks to him (Numbers 22:21–33).
+    
+- Despite Balak’s requests, Balaam ends up **blessing Israel** instead of cursing them — **three times**.
+    
+
+---
+
+### ⚠️ Balaam’s Downfall:
+
+**Numbers 31:8, 16**
+
+- Balaam is later **killed by the Israelites** during a battle with the Midianites.
+    
+- He is blamed for advising the Moabite women to **seduce the Israelites into idolatry and sexual sin**, leading to a plague (also see Numbers 25).
+    
+
+---
+
+### 🔁 Other Mentions:
+
+- **Deuteronomy 23:4–5** – God turned Balaam’s curse into a blessing.
+    
+- **Joshua 13:22** – Balaam is called a "soothsayer" and is noted for being killed in battle.
+    
+- **Joshua 24:9–10** – Reminder that God would not let Balaam curse Israel.
+    
+- **Micah 6:5** – Balaam’s story is referenced to show God's righteousness.
+    
+- **2 Peter 2:15, Jude 1:11, Revelation 2:14** – In the New Testament, Balaam becomes a **symbol of greed, corruption, and leading others into sin**.
 
 >'Likewise, you also have those who hold to the teaching of the Nicolaitans. '
 ==Revelation 2:15==
