@@ -180,9 +180,11 @@ https://www.bible.com/bible/111/REV.2.15
 ==Revelation 2:16==
 https://www.bible.com/bible/111/REV.2.16
 
-- Turn away from these teachings otherwise I will come and war against you with the Word of God
+- Turn away from these teachings otherwise I will come and war against you with the Word of God because the current word that is being taught is wrong.
 
 >' Whoever has ears, let them hear what the Spirit says to the churches. To the one who is victorious, I will give some of the hidden manna. I will also give that person a white stone with a new name written on it, known only to the one who receives it. '
 ==Revelation 2:17==
 https://www.bible.com/bible/111/REV.2.17
+
+- 
 ### The Corrupt or Papal Church / Thyatira
