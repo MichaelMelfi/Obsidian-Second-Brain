@@ -115,12 +115,13 @@ I am the one who died and came to life, He said this to the people who were bein
 https://www.bible.com/bible/111/REV.2.9
 
 - You are spiritually rich even though you are physically poor.
-- God does not forget what people do and say, sometimes it is not your job to go against people who are doing wrong things.  
+- God does not forget what people do and say, sometimes it is not your job to go against people who are doing wrong things. God knows what He is doing, keep following his tasks and instructions, not everything you see is your battle to fight.
 
 >'Do not be afraid of what you are about to suffer. I tell you, the devil will put some of you in prison to test you, and you will suffer persecution for ten days. Be faithful, even to the point of death, and I will give you life as your victor’s crown. '
 ==Revelation 2:10==
 https://www.bible.com/bible/111/REV.2.10
 
+- 
 
 >' Whoever has ears, let them hear what the Spirit says to the churches. The one who is victorious will not be hurt at all by the second death. '
 ==Revelation 2:11==
