@@ -114,7 +114,7 @@ I am the one who died and came to life, He said this to the people who were bein
 ==Revelation 2:9==
 https://www.bible.com/bible/111/REV.2.9
 
-
+- You are spiritually rich even though you are ph
 
 >'Do not be afraid of what you are about to suffer. I tell you, the devil will put some of you in prison to test you, and you will suffer persecution for ten days. Be faithful, even to the point of death, and I will give you life as your victor’s crown. '
 ==Revelation 2:10==
