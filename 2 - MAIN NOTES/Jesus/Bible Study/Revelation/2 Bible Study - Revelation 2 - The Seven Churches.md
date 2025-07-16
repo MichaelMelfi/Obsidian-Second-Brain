@@ -139,8 +139,8 @@ https://www.bible.com/bible/111/REV.20.14-15
 Pergamum means Thurley married
 Because it is like some of the church is married to the pagan practices just like the Israelites stated to get married to the Moabite woman in Numbers because of Balaam.
 
-AD 313-590 (Pergamum) - State Church (The emperor became Christian)
-This is because
+AD 313-590 (Pergamum) - State Church (The emperor, Constantine,  became Christian)
+When Constantine became Christian, he made it the state religion meaning all the persecution stopped howeve
 
 This was a place where idols were highly worshipped with statues everywhere.
 A place of idol worship and idol practices
