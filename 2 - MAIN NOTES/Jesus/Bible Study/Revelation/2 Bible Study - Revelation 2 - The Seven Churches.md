@@ -153,7 +153,8 @@ Reference 'double edged Sword' ==Hebrews 4:12== and ==Revelation 1:16==
 ==Revelation 2:13==
 https://www.bible.com/bible/111/REV.2.13
 
-- This is not saying, this is where Satan actually lives but is most likely saying that there is such a high level of idolatry and pagan worship. Its just saying that the city is completel
+- This is not saying, this is where Satan actually lives but is most likely saying that there is such a high level of idolatry and pagan worship. Its just saying that the city is completely given over to the idol and pagan worship.
+- When God says his name it means everything about the nature, character and minist
 
 >' Nevertheless, I have a few things against you: There are some among you who hold to the teaching of Balaam, who taught Balak to entice the Israelites to sin so that they ate food sacrificed to idols and committed sexual immorality. '
 ==Revelation 2:14==
