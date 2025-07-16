@@ -2,10 +2,10 @@
 
 ##### Status:
 
-##### Tags: 
+##### Tags: [[Devotional]] [[Porn]] [[Overcoming]] 
 
 ##### Links:
-
+U Version Bible - 
 ##### What Did I Learn From This Teaching?:
 
 
