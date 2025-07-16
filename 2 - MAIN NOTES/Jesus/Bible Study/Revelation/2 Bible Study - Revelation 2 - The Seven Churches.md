@@ -239,10 +239,11 @@ https://www.bible.com/bible/111/REV.2.17
 Thyatira means - perpetual sacrifice
 
 AD 590-1517 (Thyatira) - Papal Church (The Roman Catholic Church ruled and rained                                    with the pope in the dark ages and was doing lots of bad                                    things)
+Papal comes from the word pope
 
 This area was the least important for the Roman emperor and to our knowledge there isn't any evidence of persecution that went on in this City.
 There is arkeological findings of Idols and statues
-This place specialised in special cloths 
+This place specialised in special cloths and garments
 
 >' “To the angel of the church in Thyatira write: These are the words of the Son of God, whose eyes are like blazing fire and whose feet are like burnished bronze. '
 ==Revelation 2:18==
@@ -255,6 +256,8 @@ https://www.bible.com/bible/111/REV.2.18
 >'I know your deeds, your love and faith, your service and perseverance, and that you are now doing more than you did at first. '
 ==Revelation 2:19==
 https://www.bible.com/bible/111/REV.2.19
+
+- He is telling them that some 
 
 >' Nevertheless, I have this against you: You tolerate that woman Jezebel, who calls herself a prophet. By her teaching she misleads my servants into sexual immorality and the eating of food sacrificed to idols. '
 ==Revelation 2:20==
