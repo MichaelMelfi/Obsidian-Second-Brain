@@ -92,3 +92,5 @@ https://www.bible.com/bible/59/REV.2.7
 - Why did God not want Adam and eve to eat from the tree of life? its because they were sinners and in order for them to be redeemed they must first die. God kept us away from the tree of life all those years as actually an act of mercy because without death there cannot be life as we are sinners and we must first die to be redeemed. But the problem was that the death that we deserve ==(Wages of sin is death)== wouldn't allow us to enjoy anything after we die because that death means eternal separation from God so by Jesus dyeing he bore that separation and we are now able to eat from the tree of life as we will cast off our sinful nature when we physically die, we will them be ready to eat from the tree of life and live forever. ==(Revelation 22:1-2)==
 
 ### The Persecuted Church / Smyrna
+### The Compromising or State Church / Pergamum
+### The Corrupt or Papal Church / Thyatira
