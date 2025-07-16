@@ -128,8 +128,8 @@ https://www.bible.com/bible/111/REV.2.10
 ==Revelation 2:11==
 https://www.bible.com/bible/111/REV.2.11
 
-- The first death is the death of the body.
-- The second death is 
+- God is not promising you to live through your persecution as The first death is the death of the body.
+- But He is promising that you will not The second death is 
 >'Then death and Hades were thrown into the lake of fire. The lake of fire is the second death. Anyone whose name was not found written in the book of life was thrown into the lake of fire.'
 ==Revelation 20:14-15==
 https://www.bible.com/bible/111/REV.20.14-15
