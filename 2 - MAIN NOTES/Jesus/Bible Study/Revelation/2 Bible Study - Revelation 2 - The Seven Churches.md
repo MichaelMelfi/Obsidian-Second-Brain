@@ -45,7 +45,7 @@ AD 1900-Present (Laodicea) - Apostate Church
 ![[sevenchurches1.webp]]
 ### The Loveless Church / Ephesus
 AD 30-100 (Ephesus) - Apostolic Church (The Church began)
-This is where the the church was bring shown everywhere however they were so set on the teachings that they forgot the rea
+This is where the the church was bring shown everywhere however they were so set on the teachings that they forgot to be gracious. 
 >' “To the angel of the church in Ephesus write: ‘The words of him who holds the seven stars in his right hand, who walks among the seven golden lampstands.'
 ==Revelation 2:1==
 https://www.bible.com/bible/59/REV.2.1
@@ -140,7 +140,7 @@ Pergamum means Thurley married
 Because it is like some of the church is married to the pagan practices just like the Israelites stated to get married to the Moabite woman in Numbers because of Balaam.
 
 AD 313-590 (Pergamum) - State Church (The emperor became Christian)
-
+This is because
 
 This was a place where idols were highly worshipped with statues everywhere.
 A place of idol worship and idol practices
