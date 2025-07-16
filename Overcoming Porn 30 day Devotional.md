@@ -120,3 +120,4 @@ Part of repenting involves receiving God’s grace and believing what His word s
 >==Romans 8:1**==
 
 
+I am forgiven and will keeping moving forward, every temptation I have is a trial that I must pass
