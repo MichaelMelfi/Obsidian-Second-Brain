@@ -103,7 +103,6 @@ Many many Christians were being covered in tar, sown into animal skin and fed to
 
 Smyrna was a place of great wealth as it was next to the sea and was a trade route.
 This meant there was a lot of people there
-Smyrna is like the fragrance **Myrrh** which is very expensive and valuable, however, it was also a fragrance that they would put on dead bodies.
 It was full of Jews and gentiles who hated the Christians.
 
 >' “To the angel of the church in Smyrna write: These are the words of him who is the First and the Last, who died and came to life again. '
@@ -136,7 +135,9 @@ https://www.bible.com/bible/111/REV.2.11
 ==Revelation 20:14-15==
 https://www.bible.com/bible/111/REV.20.14-15
 ### The Compromising or State Church / Pergamum
-
+Pergamum means married
+This was a place where idols w
+AD 313-590 (Pergamum) - State Church (The emperor became Christian)
 >' “To the angel of the church in Pergamum write: These are the words of him who has the sharp, double-edged sword. '
 ==Revelation 2:12==
 https://www.bible.com/bible/111/REV.2.12
