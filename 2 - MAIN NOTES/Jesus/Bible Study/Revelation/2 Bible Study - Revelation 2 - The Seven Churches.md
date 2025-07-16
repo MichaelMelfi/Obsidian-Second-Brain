@@ -201,7 +201,9 @@ Yeast is the picture of sin because yeast permeates and that is what sin does.
     
 - **2 Peter 2:15, Jude 1:11, Revelation 2:14** – In the New Testament, Balaam becomes a **symbol of greed, corruption, and leading others into sin**.
 
-###
+##### Preach
+Even when Balaak kept trying to get Balaam to curse Israel but all that would come out 
+
 #### Continuation
 >'Likewise, you also have those who hold to the teaching of the Nicolaitans. '
 ==Revelation 2:15==
