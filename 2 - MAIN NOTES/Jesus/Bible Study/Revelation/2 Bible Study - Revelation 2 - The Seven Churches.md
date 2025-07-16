@@ -136,9 +136,22 @@ https://www.bible.com/bible/111/REV.2.11
 https://www.bible.com/bible/111/REV.20.14-15
 ### The Compromising or State Church / Pergamum
 Pergamum means married
-This was a place where idols w
+
 AD 313-590 (Pergamum) - State Church (The emperor became Christian)
+
+
+This was a place where idols were highly worshipped with statues everywhere.
+A place of idol worship and idol practices
+
 >' “To the angel of the church in Pergamum write: These are the words of him who has the sharp, double-edged sword. '
 ==Revelation 2:12==
 https://www.bible.com/bible/111/REV.2.12
+
+>'I know where you live—where Satan has his throne. Yet you remain true to my name. You did not renounce your faith in me, not even in the days of Antipas, my faithful witness, who was put to death in your city—where Satan lives. '
+==Revelation 2:13==
+https://www.bible.com/bible/111/REV.2.13
+
+' Nevertheless, I have a few things against you: There are some among you who hold to the teaching of Balaam, who taught Balak to entice the Israelites to sin so that they ate food sacrificed to idols and committed sexual immorality. '
+Revelation 2:14
+https://www.bible.com/bible/111/REV.2.14
 ### The Corrupt or Papal Church / Thyatira
