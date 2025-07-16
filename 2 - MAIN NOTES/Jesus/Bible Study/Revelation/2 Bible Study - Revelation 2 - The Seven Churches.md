@@ -191,7 +191,7 @@ Yeast is the picture of sin because yeast permeates and that is what sin does.
     
 - He is blamed for advising the Moabite women to **seduce the Israelites into idolatry and sexual sin**, leading to a plague (also see Numbers 25).
 
- 🔁 Other Mentions:
+ 🔁 **Other Mentions**:
 
 - **Deuteronomy 23:4–5** – God turned Balaam’s curse into a blessing.
     
@@ -202,7 +202,7 @@ Yeast is the picture of sin because yeast permeates and that is what sin does.
 - **Micah 6:5** – Balaam’s story is referenced to show God's righteousness.
     
 - **2 Peter 2:15, Jude 1:11, Revelation 2:14** – In the New Testament, Balaam becomes a **symbol of greed, corruption, and leading others into sin**.
-
+#### Continuation
 >'Likewise, you also have those who hold to the teaching of the Nicolaitans. '
 ==Revelation 2:15==
 https://www.bible.com/bible/111/REV.2.15
