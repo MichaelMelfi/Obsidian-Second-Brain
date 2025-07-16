@@ -163,7 +163,8 @@ https://www.bible.com/bible/111/REV.2.13
 https://www.bible.com/bible/111/REV.2.14
 
 - Why is He making the point of only some in the church? what is the point, why bring it up?
-It only takes a little bit of yeast to 
+It only takes a little bit of yeast to work through the whole batch of dough.
+Yeast is the picture of sin because yeast permiates and that is what sin does.
 
 >'Likewise, you also have those who hold to the teaching of the Nicolaitans. '
 ==Revelation 2:15==
