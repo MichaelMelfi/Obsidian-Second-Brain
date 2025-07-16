@@ -110,17 +110,20 @@ I cannot hide my sin, I must speak openly about it.
 - It's important that if I ever relapse that I use it as an opportunity to grow. When I  do, I can fail growing forward and not falling backwards.
 
 ### Here are a few questions to ask about your last relapse:       
-- What initially turned my thoughts sexual? What triggered me?
-It will usually be something that comes up on Instagram or a random thought.
-- What device did I use to relapse with?
-Usually my phone, though Ihave used my computer a couple of times.
-- What adjustments can I make to avoid this happening again? Locking up a device? Avoiding sexual triggers?
-Not taking my phone into the toilet or shower. 
-If I ever feel the urge, to put my phone down and walk away from it. 
-pray.
-Put on a worship or praise song.
-- What would I do differently if I found myself in a similar situation in the future?
-Pray straight away, and confess it out of my mouth.
+1. What initially turned my thoughts sexual? What triggered me?
+- It will usually be something that comes up on Instagram or a random thought.
+
+2. What device did I use to relapse with?
+- Usually my phone, though I have used my computer a couple of times.
+
+3. What adjustments can I make to avoid this happening again? Locking up a device? Avoiding sexual triggers?
+- Not taking my phone into the toilet or shower. 
+- If I ever feel the urge, to put my phone down and walk away from it. 
+- pray.
+- Put on a worship or praise song.
+
+4. What would I do differently if I found myself in a similar situation in the future?
+- Pray straight away, and confess it out of my mouth.
 
 Repentance involves turning away from our sin. How can you turn away from this sin? What are those triggers you need to remove from your life?
 
