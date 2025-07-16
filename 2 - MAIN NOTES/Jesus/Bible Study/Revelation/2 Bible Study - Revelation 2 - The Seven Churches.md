@@ -246,28 +246,23 @@ She was trying to get people to compromise their Christian Faith
 >'I have given her time to repent of her immorality, but she is unwilling. '
 ==Revelation 2:21==
 https://www.bible.com/bible/111/REV.2.21
-
 >'So I will cast her on a bed of suffering, and I will make those who commit adultery with her suffer intensely, unless they repent of her ways. '
 ==Revelation 2:22==
 https://www.bible.com/bible/111/REV.2.22
-
 >'I will strike her children dead. Then all the churches will know that I am he who searches hearts and minds, and I will repay each of you according to your deeds. '
 ==Revelation 2:23==
 https://www.bible.com/bible/111/REV.2.23
 
-This is saying that God will strike the fruit of w
+- This is saying that God will strike the fruit of what comes out of these people and this idea.
 
 >' Now I say to the rest of you in Thyatira, to you who do not hold to her teaching and have not learned Satan’s so-called deep secrets, ‘I will not impose any other burden on you, '
 ==Revelation 2:24==
 https://www.bible.com/bible/111/REV.2.24
-
-
-
 >'except to hold on to what you have until I come.’ '
 ==Revelation 2:25==
 https://www.bible.com/bible/111/REV.2.25
 
-
+- These people are in such a bad situation that all God is telling the Christians to do is just hold fast and hold on till He comes
 
 >' To the one who is victorious and does my will to the end, I will give authority over the nations— '
 ==Revelation 2:26==
