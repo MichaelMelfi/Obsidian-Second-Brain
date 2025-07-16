@@ -209,11 +209,11 @@ https://www.bible.com/bible/111/REV.2.17
 Thyatira means - perpetual sacrifice
 
 AD 590-1517 (Thyatira) - Papal Church (The Roman Catholic Church ruled and rained                                    with the pope in the dark ages and was doing lots of bad                                    things)
-Papal comes from the word pope
-The dark ages became a time where paganism were mixed with Christianity
-and still to this day Roman Catholicism has pagan traditions from this time period.
-In this time period, they would force people to become Christian and if they would confess roman Catholicism they would kill them. They thought that if you were an unbeliever you were like a cancer and needed to be removed.
-The priests would go out into villages and teach the laws and practices of Roman Catholicism so people would be doing their pagan worship with the Catholicism practices. 
+- Papal comes from the word pope
+- The dark ages became a time where paganism were mixed with Christianity
+- Still to this day Roman Catholicism has pagan traditions from this time period.
+- In this time period, they would force people to become Christian and if they would confess roman Catholicism they would kill them. They thought that if you were an unbeliever you were like a cancer and needed to be removed.
+- The priests would go out into villages and teach the laws and practices of Roman Catholicism so people would be doing their pagan worship with the Catholicism practices. 
 
 This area was the least important for the Roman emperor and to our knowledge there isn't any evidence of persecution that went on in this City.
 There is arkeological findings of Idols and statues
@@ -247,19 +247,15 @@ She was trying to get people to compromise their Christian Faith
 ==Revelation 2:21==
 https://www.bible.com/bible/111/REV.2.21
 
-
-
 >'So I will cast her on a bed of suffering, and I will make those who commit adultery with her suffer intensely, unless they repent of her ways. '
 ==Revelation 2:22==
 https://www.bible.com/bible/111/REV.2.22
-
-
 
 >'I will strike her children dead. Then all the churches will know that I am he who searches hearts and minds, and I will repay each of you according to your deeds. '
 ==Revelation 2:23==
 https://www.bible.com/bible/111/REV.2.23
 
-
+This is saying that God will strike the fruit of w
 
 >' Now I say to the rest of you in Thyatira, to you who do not hold to her teaching and have not learned Satan’s so-called deep secrets, ‘I will not impose any other burden on you, '
 ==Revelation 2:24==
