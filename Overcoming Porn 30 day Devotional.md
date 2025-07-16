@@ -114,3 +114,9 @@ it is always when I am on my own
 - What device did I use to relapse with?        
 - What adjustments can I make to avoid this happening again? Locking up a device? Avoiding sexual triggers?        
 - What would I do differently if I found myself in a similar situation in the future?
+
+Part of repenting involves receiving God’s grace and believing what His word says instead of your feelings.
+>**“There is therefore now no condemnation for those who are in Christ Jesus.” - 
+>==Romans 8:1**==
+
+
