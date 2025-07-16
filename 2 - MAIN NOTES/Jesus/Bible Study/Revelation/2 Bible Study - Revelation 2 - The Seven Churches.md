@@ -210,6 +210,8 @@ Thyatira means - perpetual sacrifice
 
 AD 590-1517 (Thyatira) - Papal Church (The Roman Catholic Church ruled and rained                                    with the pope in the dark ages and was doing lots of bad                                    things)
 Papal comes from the word pope
+The dark ages became a time where paganism were mixed with Christianity
+and still to this day Roman cath
 
 This area was the least important for the Roman emperor and to our knowledge there isn't any evidence of persecution that went on in this City.
 There is arkeological findings of Idols and statues
@@ -237,6 +239,7 @@ https://www.bible.com/bible/111/REV.2.20
 
 [[Who was Jezebel facts sheet]]??
 Jezebel was teaching believers into sexual immorality and made them join in in pagan festivals where they would eat food that had been sacrificed to idols.
+She was trying to get people to compromise their Christian Faith
 
 >'I have given her time to repent of her immorality, but she is unwilling. '
 ==Revelation 2:21==
