@@ -94,7 +94,9 @@ https://www.bible.com/bible/59/REV.2.7
 
 ### The Persecuted Church / Smyrna
 
-Am
+Smyrna was a place of great wealth as it was next to the sea and was a trade route.
+This meant there was a lot of people there
+Smyrna is like the fragrence Myre which is very expensive and valuable however it 
 >' “To the angel of the church in Smyrna write: These are the words of him who is the First and the Last, who died and came to life again. '
 ==Revelation 2:8==
 https://www.bible.com/bible/111/REV.2.8
