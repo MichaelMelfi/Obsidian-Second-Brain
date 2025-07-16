@@ -44,8 +44,9 @@ AD 1900-Present (Laodicea) - Apostate Church
 ## The Seven Churches
 ![[sevenchurches1.webp]]
 ### The Loveless Church / Ephesus
-AD 30-100 (Ephesus) - Apostolic Church (The Church began)
-This is where the the church was bring shown everywhere however they were so set on the teachings that they forgot to be gracious. 
+Ephesus means - The name is thought to mean something like **“desirable”** or **“permitted”**, but **there is no firm agreement among scholars**.
+
+AD 30-100 (Ephesus) - Apostolic Church (The Church began)This is where the the church was bring shown everywhere however they were so set on the teachings that they forgot to be gracious. 
 >' “To the angel of the church in Ephesus write: ‘The words of him who holds the seven stars in his right hand, who walks among the seven golden lampstands.'
 ==Revelation 2:1==
 https://www.bible.com/bible/59/REV.2.1
