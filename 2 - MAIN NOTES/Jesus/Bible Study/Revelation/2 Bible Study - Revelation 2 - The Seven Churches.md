@@ -262,13 +262,13 @@ https://www.bible.com/bible/111/REV.2.24
 ==Revelation 2:25==
 https://www.bible.com/bible/111/REV.2.25
 
-- These people are in such a bad situation that all God is telling the Christians to do is just hold fast and hold on till He comes
+- These people are in such a bad situation that all God is telling the Christians to do is just hold fast and hold on till He comes.
 
 >' To the one who is victorious and does my will to the end, I will give authority over the nations— '
 ==Revelation 2:26==
 https://www.bible.com/bible/111/REV.2.26
 
-
+- They will reign with Him
 
 >'that one ‘will rule them with an iron scepter and will dash them to pieces like pottery’ —just as I have received authority from my Father. '
 ==Revelation 2:27==
@@ -280,8 +280,9 @@ https://www.bible.com/bible/111/REV.2.27
 ==Revelation 2:28==
 https://www.bible.com/bible/111/REV.2.28
 
-
+- The morning star is Jesus
 
 >'Whoever has ears, let them hear what the Spirit says to the churches.'
 ==Revelation 2:29==
 https://www.bible.com/bible/111/REV.2.29
+
