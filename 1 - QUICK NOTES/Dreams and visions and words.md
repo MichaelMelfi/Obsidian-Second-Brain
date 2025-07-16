@@ -1,4 +1,4 @@
-
+# From ME
 ## WORDS
 #### I will pastor Citygate and through me there will be missions being sent out.
 Stick with Sujin and stay his friend for he will help.
@@ -20,5 +20,14 @@ Sujin - I took down the Barriers during my fasting but Jesus has taken down the 
 
 #### A butterfly coming out of its cocoon and it flys  away but this one butterfly also wakes up the  rest of the butterfly’s and gets them out of the cocoons and leads them into freedom.
 
-##
+#### Me Preaching 
 ## Dreams
+
+
+# From Others
+
+## WORDS
+
+## VISIONS
+
+## DREAMS
