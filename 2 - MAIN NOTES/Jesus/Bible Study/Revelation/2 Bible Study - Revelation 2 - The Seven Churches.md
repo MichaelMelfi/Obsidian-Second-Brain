@@ -151,7 +151,19 @@ https://www.bible.com/bible/111/REV.2.12
 ==Revelation 2:13==
 https://www.bible.com/bible/111/REV.2.13
 
-' Nevertheless, I have a few things against you: There are some among you who hold to the teaching of Balaam, who taught Balak to entice the Israelites to sin so that they ate food sacrificed to idols and committed sexual immorality. '
-Revelation 2:14
+>' Nevertheless, I have a few things against you: There are some among you who hold to the teaching of Balaam, who taught Balak to entice the Israelites to sin so that they ate food sacrificed to idols and committed sexual immorality. '
+==Revelation 2:14==
 https://www.bible.com/bible/111/REV.2.14
+
+>'Likewise, you also have those who hold to the teaching of the Nicolaitans. '
+==Revelation 2:15==
+https://www.bible.com/bible/111/REV.2.15
+
+>'Repent therefore! Otherwise, I will soon come to you and will fight against them with the sword of my mouth. '
+==Revelation 2:16==
+https://www.bible.com/bible/111/REV.2.16
+
+>' Whoever has ears, let them hear what the Spirit says to the churches. To the one who is victorious, I will give some of the hidden manna. I will also give that person a white stone with a new name written on it, known only to the one who receives it. '
+==Revelation 2:17==
+https://www.bible.com/bible/111/REV.2.17
 ### The Corrupt or Papal Church / Thyatira
