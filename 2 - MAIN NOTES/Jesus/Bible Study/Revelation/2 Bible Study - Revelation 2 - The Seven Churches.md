@@ -147,13 +147,13 @@ A place of idol worship and idol practices
 ==Revelation 2:12==
 https://www.bible.com/bible/111/REV.2.12
 
-Reference to 'double edged Sword' ==Hebrews 4:12== and ==Revelation 1:16==
+Reference 'double edged Sword' ==Hebrews 4:12== and ==Revelation 1:16==
 
 >'I know where you live—where Satan has his throne. Yet you remain true to my name. You did not renounce your faith in me, not even in the days of Antipas, my faithful witness, who was put to death in your city—where Satan lives. '
 ==Revelation 2:13==
 https://www.bible.com/bible/111/REV.2.13
 
-- This is not saying, this is where Satan actually lives but is most likely saying that there is such a high level of idolatry that 
+- This is not saying, this is where Satan actually lives but is most likely saying that there is such a high level of idolatry and pagan worship. Its just saying that the city is completel
 
 >' Nevertheless, I have a few things against you: There are some among you who hold to the teaching of Balaam, who taught Balak to entice the Israelites to sin so that they ate food sacrificed to idols and committed sexual immorality. '
 ==Revelation 2:14==
