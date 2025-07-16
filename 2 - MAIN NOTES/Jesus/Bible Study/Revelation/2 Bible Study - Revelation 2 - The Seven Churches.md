@@ -162,7 +162,8 @@ https://www.bible.com/bible/111/REV.2.13
 ==Revelation 2:14==
 https://www.bible.com/bible/111/REV.2.14
 
-- 
+- Why is He making the point of only some in the church? what is the point, why bring it up?
+It only takes a little bit of yeast to 
 
 >'Likewise, you also have those who hold to the teaching of the Nicolaitans. '
 ==Revelation 2:15==
