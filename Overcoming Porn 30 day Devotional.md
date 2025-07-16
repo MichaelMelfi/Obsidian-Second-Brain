@@ -106,8 +106,8 @@ I cannot hide my sin, I must speak openly about it.
 
 - for 95% of people it takes between 6 months to 2 years to fully experience freedom from porn.
 - Stopping an addiction is stopping a habit that you have trained yourself to automatically do for years, it does not happen overnight, you must rewire your brain and this only happens through Jesus and being surrounded by supportive people.
-- Relapses can happen and it happens to everyone, this does not mean I have failed but also does not make it any less sinful or less serious but by knowing this it is easier 
-- It's important to use a relapse as an opportunity to grow. When you do, you can fail growing forward and not falling backwards.
+- Relapses can happen and it happens to everyone, this does not mean I have failed but also does not make it any less sinful or less serious but by knowing this it is easier to receive Gods forgiveness and forgive myself.
+- It's important that if I ever relapse that I use it as an opportunity to grow. When I  do, I can fail growing forward and not falling backwards.
 
 ### Here are a few questions to ask about your last relapse:       
 - What initially turned my thoughts sexual? What triggered me?       
@@ -115,7 +115,7 @@ I cannot hide my sin, I must speak openly about it.
 - What adjustments can I make to avoid this happening again? Locking up a device? Avoiding sexual triggers?        
 - What would I do differently if I found myself in a similar situation in the future?
 
-Part of repenting involves receiving God’s grace and believing what His word says instead of your feelings.
+Part of repenting involves receiving God’s grace and believing what His word says instead of my feelings.
 >**“There is therefore now no condemnation for those who are in Christ Jesus.” - 
 >==Romans 8:1**==
 
