@@ -83,7 +83,7 @@ https://www.bible.com/bible/59/REV.2.5
 ==Revelation 2:6==
 https://www.bible.com/bible/59/REV.2.6
 - the Nicolaitans were most likely a group of people who were false prophets.
-
+ The route of the name ==Nicolaitans== comes from a phrase that infers / carries the idea of a higheracle separation between the church leaders and the flock.
 
 >'He who has an ear, let him hear what the Spirit says to the churches. To the one who conquers I will grant to eat of the tree of life, which is in the paradise of God.’ 
 ==Revelation 2:7==
