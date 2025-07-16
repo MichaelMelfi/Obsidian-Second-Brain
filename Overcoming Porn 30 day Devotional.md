@@ -107,5 +107,10 @@ it is always when I am on my own
 - for 95% of people it takes between 6 months to 2 years to fully experience freedom from porn.
 - Stopping an addiction is stopping a habit that you have trained yourself to automatically do for years, it does not happen overnight, you must rewire your brain and this only happens through Jesus and being surrounded by supportive people.
 - Relapses can happen and it happens to everyone, this does not mean you have failed but it also does not make it any less sinful or less serious but it should give me a better perspective on being able to forgive myself and receive Gods forgiveness.
-
 - It's important to use a relapse as an opportunity to grow. When you do, you can fail growing forward and not falling backwards.
+
+### Here are a few questions to ask about your last relapse:       
+- What initially turned my thoughts sexual? What triggered me?       
+- What device did I use to relapse with?        
+- What adjustments can I make to avoid this happening again? Locking up a device? Avoiding sexual triggers?        
+- What would I do differently if I found myself in a similar situation in the future?
