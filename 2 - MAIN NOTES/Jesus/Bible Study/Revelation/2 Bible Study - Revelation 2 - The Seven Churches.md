@@ -121,7 +121,7 @@ https://www.bible.com/bible/111/REV.2.9
 ==Revelation 2:10==
 https://www.bible.com/bible/111/REV.2.10
 
-- 
+- Never be afraid of what you suffer, everyone suffers in their life, being Christian doesn't exempt you from that but remember that Jesus has conoured death, hell and the grave so whatever you go through
 
 >' Whoever has ears, let them hear what the Spirit says to the churches. The one who is victorious will not be hurt at all by the second death. '
 ==Revelation 2:11==
