@@ -212,7 +212,8 @@ AD 590-1517 (Thyatira) - Papal Church (The Roman Catholic Church ruled and raine
 Papal comes from the word pope
 The dark ages became a time where paganism were mixed with Christianity
 and still to this day Roman Catholicism has pagan traditions from this time period.
-In this time period, they would force people to become Christian and if they would confess 
+In this time period, they would force people to become Christian and if they would confess roman Catholicism they would kill them. They thought that if you were an unbeliever you were like a cancer and needed to be removed.
+The preists would go out i
 
 This area was the least important for the Roman emperor and to our knowledge there isn't any evidence of persecution that went on in this City.
 There is arkeological findings of Idols and statues
