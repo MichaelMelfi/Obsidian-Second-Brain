@@ -236,9 +236,13 @@ https://www.bible.com/bible/111/REV.2.17
 - The hidden manna is talking about Jesus being the bread of life.
 - We do not know what exactly the white stone refers too. A white stone could be a gift that means anything, it could be an invitation to a party, it could be a showing of friendship or many other things.
 ### The Corrupt or Papal Church / Thyatira
+Thyatira means - perpetual sacrifice
+
+AD 590-1517 (Thyatira) - Papal Church (The Roman Catholic Church ruled and rained                                    with the pope in the dark ages and was doing lots of bad                                    things)
 
 This area was the least important for the Roman emperor and to our knowledge there isn't any evidence of persecution that went on in this City.
 There is arkeological findings of Idols and statues
+This place specialised in special cloths 
 
 >' “To the angel of the church in Thyatira write: These are the words of the Son of God, whose eyes are like blazing fire and whose feet are like burnished bronze. '
 ==Revelation 2:18==
