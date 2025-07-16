@@ -112,8 +112,10 @@ I cannot hide my sin, I must speak openly about it.
 ### Here are a few questions to ask about your last relapse:       
 - What initially turned my thoughts sexual? What triggered me?
 It will usually be something that comes up on Instagram or a random thought.
-- What device did I use to relapse with?        
-- What adjustments can I make to avoid this happening again? Locking up a device? Avoiding sexual triggers?        
+- What device did I use to relapse with?
+Usually my phone, though Ihave used my computer a couple of times.
+- What adjustments can I make to avoid this happening again? Locking up a device? Avoiding sexual triggers?
+Not taking my phone into the toilet or shower. If i ever feel the urge, to put my phone down and walk away from it.
 - What would I do differently if I found myself in a similar situation in the future?
 
 Repentance involves turning away from our sin. How can you turn away from this sin? What are those triggers you need to remove from your life?
