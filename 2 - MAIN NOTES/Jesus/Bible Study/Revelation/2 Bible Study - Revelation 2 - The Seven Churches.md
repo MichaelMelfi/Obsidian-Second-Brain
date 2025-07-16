@@ -100,10 +100,15 @@ Smyrna was a place of great wealth as it was next to the sea and was a trade rou
 This meant there was a lot of people there
 Smyrna is like the fragrance **Myrrh** which is very expensive and valuable, however, it was also a fragrance that they would put on dead bodies.
 It was full of Jews and gentiles who hated the Christians.
+
 >' “To the angel of the church in Smyrna write: These are the words of him who is the First and the Last, who died and came to life again. '
 ==Revelation 2:8==
 https://www.bible.com/bible/111/REV.2.8
 
+I am the one who died and came to life, He said this to the people who were being persecuted, reminding them that death is not the end that He has concurred death.
 
+'I know your afflictions and your poverty—yet you are rich! I know about the slander of those who say they are Jews and are not, but are a synagogue of Satan. '
+Revelation 2:9
+https://www.bible.com/bible/111/REV.2.9
 ### The Compromising or State Church / Pergamum
 ### The Corrupt or Papal Church / Thyatira
