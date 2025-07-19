@@ -386,5 +386,10 @@ https://www.bible.com/bible/59/REV.3.7
 ==Revelation 3:8==
 https://www.bible.com/bible/59/REV.3.8
 
-- God has all the power. The door is refering to a missionary 
+- The open door is referring to a evangelistic opportunity
+'for a wide door for effective work has opened to me, and there are many adversaries. '
+==1 Corinthians 16:9==
+https://www.bible.com/bible/59/1CO.16.9
+
+
 ### The Lukewarm Church / Leodicea
