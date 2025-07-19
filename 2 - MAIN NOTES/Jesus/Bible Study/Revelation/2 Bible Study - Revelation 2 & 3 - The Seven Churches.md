@@ -293,7 +293,7 @@ https://www.bible.com/bible/111/REV.2.29
 
 ## Revelations 3
 ### The Dead Church / Sardis
-Sardis means - Those escaping
+Sardis means - Possibly connected to words meaning “**remnant**” or “**escaping ones**.”
 They were escaping from the dark ages and the Roman Catholic Church
 
 AD 1517-1730 (Sardis) - Reformed Church.
