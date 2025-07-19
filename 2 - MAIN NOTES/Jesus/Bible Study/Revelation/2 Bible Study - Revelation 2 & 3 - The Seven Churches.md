@@ -401,5 +401,6 @@ https://www.bible.com/bible/59/REV.3.9
 ==Revelation 3:10==
 https://www.bible.com/bible/59/REV.3.10
 
-- You HAVE (past tense) 
+- You HAVE (past tense) kept my word. It does not say you WILL, it says you HAVE.
+Meaning that He is speaking about the great tribulation
 ### The Lukewarm Church / Laodicea
