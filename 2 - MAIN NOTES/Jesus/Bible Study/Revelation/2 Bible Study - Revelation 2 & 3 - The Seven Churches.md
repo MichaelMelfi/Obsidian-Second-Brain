@@ -435,6 +435,8 @@ Laodicea -
 
 AD 1900-Present (Laodicea) - Apostate Church
 
+Laodicea was actually destroyed by an earthquake but was rebuilt because of its amount of wealth.
+
 
 >' “And to the angel of the church in Laodicea write: ‘The words of the Amen, the faithful and true witness, the beginning of God’s creation.'
 ==Revelation 3:14==
