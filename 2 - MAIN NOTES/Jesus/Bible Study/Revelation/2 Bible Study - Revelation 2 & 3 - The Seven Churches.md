@@ -440,6 +440,11 @@ It says that most people in the last days will become apostates (people who aban
 ==2 Timothy 3:1-5==
 https://www.bible.com/bible/59/2TI.3.1-5
 
+>'Let no one deceive you in any way. For that day will not come, unless the rebellion comes first, and the man of lawlessness is revealed, the son of destruction, '
+==2 Thessalonians 2:3==
+https://www.bible.com/bible/59/2TH.2.3
+
+
 Laodicea was actually destroyed by an earthquake but was rebuilt because of its amount of wealth.
 
 
