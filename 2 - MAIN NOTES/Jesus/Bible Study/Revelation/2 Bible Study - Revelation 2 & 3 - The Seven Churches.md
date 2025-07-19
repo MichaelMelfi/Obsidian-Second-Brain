@@ -374,7 +374,7 @@ https://www.bible.com/bible/59/REV.3.6
 Philadelphia - Brotherly love
 
 AD 1730-1900 (Philadelphia) - Missionary Church (Travel becomes a lot easier and the                                      gospel exploded around the world with missionaries)
-Some think the missionary church is happening still today and will keep going until Jesus comes back.
+Some think the missionary church is happening still today and will keep going until Jesus comes back. (That this church and the next church go hand in hand and work side by side together)
 
 >' “And to the angel of the church in Philadelphia write: ‘The words of the holy one, the true one, who has the key of David, who opens and no one will shut, who shuts and no one opens.'
 ==Revelation 3:7==
@@ -393,4 +393,4 @@ https://www.bible.com/bible/59/1CO.16.9
 
 
 
-### The Lukewarm Church / Leodicea
+### The Lukewarm Church / Laodicea
