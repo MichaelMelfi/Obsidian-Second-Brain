@@ -97,7 +97,15 @@ https://www.bible.com/bible/59/REV.2.7
 - Why did God not want Adam and eve to eat from the tree of life? its because they were sinners and in order for them to be redeemed they must first die. God kept us away from the tree of life all those years as actually an act of mercy because without death there cannot be life as we are sinners and we must first die to be redeemed. But the problem was that the death that we deserve ==(Wages of sin is death)== wouldn't allow us to enjoy anything after we die because that death means eternal separation from God so by Jesus dyeing he bore that separation and we are now able to eat from the tree of life as we will cast off our sinful nature when we physically die, we will them be ready to eat from the tree of life and live forever. ==(Revelation 22:1-2)==
 
 ### The Persecuted Church / Smyrna
-Smyrna is like the fragrance **Myrrh** which is very expensive and valuable, however, it was also a fragrance that they would put on dead bodies.
+**Smyrna** (Greek: **Σμύρνα**) comes from the word **“myrrh”** — a fragrant spice used for:
+
+- **Anointing** (priests/kings),
+    
+- **Burials** (a symbol of death and suffering),
+    
+- **Worship** (it was one of the gifts brought to Jesus by the wise men).
+
+> **Smyrna = "myrrh" = fragrance of suffering and sacrifice**
 
 AD 100-313 (Smyrna) - Persecuted Church (The body of Christ was Persecuted                                       everywhere)
 
@@ -138,7 +146,8 @@ https://www.bible.com/bible/111/REV.2.11
 ==Revelation 20:14-15==
 https://www.bible.com/bible/111/REV.20.14-15
 ### The Compromising or State Church / Pergamum
-Pergamum - Thurley married
+Pergamum - Some symbolically interpret it as **“married to power”** or **“married to the world”** — especially based on its spiritual condition in Revelation.
+
 Because it is like some of the church is married to the pagan practices just like the Israelites stated to get married to the Moabite woman in Numbers because of Balaam.
 
 AD 313-590 (Pergamum) - State Church (The emperor, Constantine,  became Christian)
