@@ -444,8 +444,15 @@ https://www.bible.com/bible/59/REV.3.14
 
 - The word amen means 'so be it' ' it is done' 'it is finished'
 - The faithful and true witness - He is saying He is 100% true and everything He is about to say is true.
-- The beginning of Gods creation - 
+- The beginning of Gods creation - means the source of Gods creation, He is calling Himself the creator.
 
 >' “‘I know your works: you are neither cold nor hot. Would that you were either cold or hot!'
 ==Revelation 3:15==
 https://www.bible.com/bible/59/REV.3.15
+
+- He does not say anything nice like the other letters.
+
+
+>'So, because you are lukewarm, and neither hot nor cold, I will spit you out of my mouth. '
+==Revelation 3:16==
+https://www.bible.com/bible/59/REV.3.16
