@@ -385,4 +385,6 @@ https://www.bible.com/bible/59/REV.3.7
 >' “‘I know your works. Behold, I have set before you an open door, which no one is able to shut. I know that you have but little power, and yet you have kept my word and have not denied my name.'
 ==Revelation 3:8==
 https://www.bible.com/bible/59/REV.3.8
+
+- God has all the power. The door is refering to a missionary 
 ### The Lukewarm Church / Leodicea
