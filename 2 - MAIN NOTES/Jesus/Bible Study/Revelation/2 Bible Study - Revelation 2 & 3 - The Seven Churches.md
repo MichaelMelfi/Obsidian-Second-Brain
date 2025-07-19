@@ -353,6 +353,9 @@ https://www.bible.com/bible/111/ZEC.3.4
 >'The one who conquers will be clothed thus in white garments, and I will never blot his name out of the book of life. I will confess his name before my Father and before his angels. '
 ==Revelation 3:5==
 https://www.bible.com/bible/59/REV.3.5
+- Clothing you in the garment of Righteousness
+
+
 >'He who has an ear, let him hear what the Spirit says to the churches.’ '
 ==Revelation 3:6==
 https://www.bible.com/bible/59/REV.3.6
