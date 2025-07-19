@@ -431,3 +431,11 @@ What do the names mean?
 ==Revelation 3:13==
 https://www.bible.com/bible/59/REV.3.13
 ### The Lukewarm Church / Laodicea
+Laodicea - 
+
+AD 1900-Present (Laodicea) - Apostate Church
+
+
+>' “And to the angel of the church in Laodicea write: ‘The words of the Amen, the faithful and true witness, the beginning of God’s creation.'
+==Revelation 3:14==
+https://www.bible.com/bible/59/REV.3.14
