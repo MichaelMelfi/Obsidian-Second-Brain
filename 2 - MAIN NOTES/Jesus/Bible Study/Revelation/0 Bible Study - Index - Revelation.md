@@ -61,7 +61,7 @@ The only exception for this is God and His being and He is always constant and i
 ([[1 Bible Study - Revelation 1 - What John had seen]])
 
 2. The things which are (Letters to the Churches)
-([[2 Bible Study - Revelation 2 - The Seven Churches]])
+([[2 Bible Study - Revelation 2 & 3 - The Seven Churches]])
  
 3. The things which will take place after this (Rev 4-22)
 

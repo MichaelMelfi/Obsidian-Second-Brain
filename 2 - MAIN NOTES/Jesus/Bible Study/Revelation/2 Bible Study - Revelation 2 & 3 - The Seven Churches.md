@@ -17,7 +17,7 @@ Dead Church
 Faithful Church
 Lukewarm Church
 
-# Bible Study - Revelation 2 - The Seven Churches
+# Bible Study - Revelation 2 & 3 - The Seven Churches
 
 ## The patterns of the Seven Church letters
 1. The Address to the Messenger or Angel of the church
@@ -291,11 +291,20 @@ https://www.bible.com/bible/111/REV.2.28
 https://www.bible.com/bible/111/REV.2.29
 
 
+## Revelations 3
 ### The Dead Church / Sardis
 
 AD 1517-1730 (Sardis) - Reformed Church (Martin Luther gets saved and goes against
 
 Known for clothing, trade routes etc, a rich city
 The city was built on a mountain that was impregnable and everyone believed they were completely safe, however, till today it was breached twice and both times was because the town wasn't being watchful / The thought they were so safe they got lazy and stopped watching out for the enemy.
+
+>' “And to the angel of the church in Sardis write: ‘The words of him who has the seven spirits of God and the seven stars. “‘I know your works. You have the reputation of being alive, but you are dead.'
+==Revelation 3:1==
+https://www.bible.com/bible/59/REV.3.1
+
+'Wake up, and strengthen what remains and is about to die, for I have not found your works complete in the sight of my God. '
+Revelation 3:2
+https://www.bible.com/bible/59/REV.3.2
 ### The Faithful Church / Philadelphia
 ### The Lukewarm Church / Leodicea

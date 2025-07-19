@@ -1,6 +1,6 @@
 2025-07-09 14:45
 [[0 Bible Study - Index - Revelation]]
-[[2 Bible Study - Revelation 2 - The Seven Churches]]
+[[2 Bible Study - Revelation 2 & 3 - The Seven Churches]]
 ##### Status:
 [[Revelation Bible Study July 2025 Fast]]
 ##### Tags: [[Revelation]] [[Revelation 1]] [[Bible Study]] [[Seven Churches]] [[Coming on The Clouds]] [[Alpha and Omega]] [[Greatness Of God]] [[Description Of God]] [[Revelation 1 The whole chapter]]
@@ -148,4 +148,4 @@ https://www.bible.com/bible/59/REV.1.19
 >'As for the mystery of the seven stars that you saw in my right hand, and the seven golden lampstands, the seven stars are the angels of the seven churches, and the seven lampstands are the seven churches.'
 ==Revelation 1:20==
 https://www.bible.com/bible/59/REV.1.20
-- These are explained in [[2 Bible Study - Revelation 2 - The Seven Churches]]
+- These are explained in [[2 Bible Study - Revelation 2 & 3 - The Seven Churches]]
