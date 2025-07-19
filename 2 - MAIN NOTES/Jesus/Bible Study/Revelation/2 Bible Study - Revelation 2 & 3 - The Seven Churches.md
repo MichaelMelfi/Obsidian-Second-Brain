@@ -392,4 +392,5 @@ https://www.bible.com/bible/59/REV.3.8
 https://www.bible.com/bible/59/1CO.16.9
 
 
+
 ### The Lukewarm Church / Leodicea
