@@ -290,5 +290,7 @@ https://www.bible.com/bible/111/REV.2.28
 https://www.bible.com/bible/111/REV.2.29
 
 
-## The Dead Church / Sardis
-##  The Fai
+### The Dead Church / Sardis
+Known for 
+### The Faithful Church / Philadelphia
+### The Lukewarm Church / Leodicea
