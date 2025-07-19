@@ -490,11 +490,14 @@ https://www.bible.com/bible/59/REV.3.19
 ==Revelation 3:20==
 https://www.bible.com/bible/59/REV.3.20'The 
 
-- This is a promise for everyone, not just people who have back sliden
+- This is a promise for everyone, not just people who have backslidden.
 
 >one who conquers, I will grant him to sit with me on my throne, as I also conquered and sat down with my Father on his throne. '
 ==Revelation 3:21==
 https://www.bible.com/bible/59/REV.3.21
+
+- We will reign with Him.
+- We are not worthy and never have been and never will be b
 
 >'He who has an ear, let him hear what the Spirit says to the churches.’”'
 ==Revelation 3:22==
