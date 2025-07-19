@@ -456,3 +456,8 @@ https://www.bible.com/bible/59/REV.3.15
 >'So, because you are lukewarm, and neither hot nor cold, I will spit you out of my mouth. '
 ==Revelation 3:16==
 https://www.bible.com/bible/59/REV.3.16
+
+
+>'For you say, I am rich, I have prospered, and I need nothing, not realizing that you are wretched, pitiable, poor, blind, and naked. '
+==Revelation 3:17==
+https://www.bible.com/bible/59/REV.3.17
