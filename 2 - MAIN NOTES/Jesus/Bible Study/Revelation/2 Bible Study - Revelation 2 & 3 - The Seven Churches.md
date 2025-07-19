@@ -309,12 +309,15 @@ https://www.bible.com/bible/59/REV.3.1
 Either way the seven Spirits and the seven stars (The seven angels/messengers) are something that God HAS, given how he speaks about it. He claims ownership over them.
 They belong to Him
 
-Jesus sees things we cannot see, we might see something alive but He can see the inside. We can see the leaves of the tree but He can see all the innerworkings
+Jesus sees things we cannot see, we might see something alive but He can see the inside and see it as dead. We can see the leaves of the tree but He can see all the innerworkings
 
 >'Wake up, and strengthen what remains and is about to die, for I have not found your works complete in the sight of my God. '
 ==Revelation 3:2==
 https://www.bible.com/bible/59/REV.3.2
 
 
+>'Remember, then, what you received and heard. Keep it, and repent. If you will not wake up, I will come like a thief, and you will not know at what hour I will come against you. '
+==Revelation 3:3==
+https://www.bible.com/bible/59/REV.3.3
 ### The Faithful Church / Philadelphia
 ### The Lukewarm Church / Leodicea
