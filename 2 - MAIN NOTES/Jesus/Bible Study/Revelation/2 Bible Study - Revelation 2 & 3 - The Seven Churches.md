@@ -432,6 +432,11 @@ What do the names mean?
 https://www.bible.com/bible/59/REV.3.13
 ### The Lukewarm Church / Laodicea
 Laodicea - 
+**“The justice of the people”**  
+or  
+**“People’s judgment”**  
+or even  
+**“Rule of the people”**
 
 AD 1900-Present (Laodicea) - Apostate Church
 It says that most people in the last days will become apostates (people who abandons or renounces their faith)
@@ -445,7 +450,7 @@ https://www.bible.com/bible/59/2TI.3.1-5
 https://www.bible.com/bible/59/2TH.2.3
 - The word deceive is from the Greek word apostasia:
 Literally means: **"a falling away," "defection," "rebellion," or "departure."**
-
+Which is where we get the word apostasy comes from
 
 Laodicea was actually destroyed by an earthquake but was rebuilt because of its amount of wealth.
 
