@@ -304,7 +304,9 @@ The city was built on a mountain that was impregnable and everyone believed they
 https://www.bible.com/bible/59/REV.3.1
 
 - What is the seven Spirits?
-- Some say it is just a re
+1. Some say it is just a reference to Gods completeness as the number of completion is seven.
+2. Others say it is the seven fold Spirit (Seven characteristics of the Holy Spirit)
+
 
 >'Wake up, and strengthen what remains and is about to die, for I have not found your works complete in the sight of my God. '
 ==Revelation 3:2==
