@@ -475,7 +475,7 @@ https://www.bible.com/bible/59/REV.3.18
 - He is not talking about literal gold. He is talking about spiritual riches that you can only get from God.
 - Their Spirits are naked and clothed by nothing. their flesh is clothed but their inside is naked.
 - What is salve? - The word of God
-- Look at the word of God and let it speak to you and you will start to see your nakedness and clothe it up, but to be okay with your nake
+- Look at the word of God and let it speak to you and you will start to see your nakedness and clothe it up, but to be okay with your nakedness you have to hav strength from God. For example, if you went to the mirror and was yourself looking really ugly, alot of people would just walk away from the mirror and quickly cover it up. You need Gds strength to be able to look at your uglyside and not walk away but make it bette
 
 >'Those whom I love, I reprove and discipline, so be zealous and repent. '
 ==Revelation 3:19==
