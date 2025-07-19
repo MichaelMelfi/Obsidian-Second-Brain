@@ -474,9 +474,13 @@ https://www.bible.com/bible/59/REV.3.18
 
 - He is not talking about literal gold. He is talking about spiritual riches that you can only get from God.
 - Their Spirits are naked and clothed by nothing. their flesh is clothed but their inside is naked.
-
+- What is salve? - The word of God
+- Look at the word of God and let it speak to you and you will start to see your nakedness and clothe it up
 
 >'Those whom I love, I reprove and discipline, so be zealous and repent. '
 ==Revelation 3:19==
 https://www.bible.com/bible/59/REV.3.19
 
+>'Behold, I stand at the door and knock. If anyone hears my voice and opens the door, I will come in to him and eat with him, and he with me. '
+==Revelation 3:20==
+https://www.bible.com/bible/59/REV.3.20
