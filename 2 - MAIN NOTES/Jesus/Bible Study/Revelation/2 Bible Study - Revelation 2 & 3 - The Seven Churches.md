@@ -318,6 +318,7 @@ https://www.bible.com/bible/59/REV.3.2
 ==Revelation 3:3==
 https://www.bible.com/bible/59/REV.3.3
 
+The five exhortations to the Church at Sardis
 God is saying 
 1. Wake up
 ### The Faithful Church / Philadelphia
