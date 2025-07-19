@@ -422,9 +422,9 @@ Why a pillar?
 - You are highly honoured by Him. Pillars are usually named or decorated to honour important people. ==Galatians 2:9== - Paul refers to church leaders as pillars
 
 What do the names mean?
-- The name of God is - OWNERSHIP, You belong to Him
-- The New jerusalem is - Citizenship
-
+- The name of God is - OWNERSHIP, (I belong to Him)
+- The New jerusalem is - CITIZENSHIP, in Heaven (My eternal home)
+- My own 
 >'He who has an ear, let him hear what the Spirit says to the churches.’ '
 ==Revelation 3:13==
 https://www.bible.com/bible/59/REV.3.13
