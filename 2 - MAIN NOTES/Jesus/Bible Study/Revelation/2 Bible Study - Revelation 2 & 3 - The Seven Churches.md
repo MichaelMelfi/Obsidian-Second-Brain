@@ -320,6 +320,8 @@ https://www.bible.com/bible/59/REV.3.3
 
 The five exhortations to the Church at Sardis
 God is saying 
-1. Wake up
+1. Wake up t
+They need to keep watch, they have got lazy, they have forgotten to look out for the enemy otherwise they will get overrun
+2. Strengthen what remains - Strengthen what they have left, they do not need extra stuff, b
 ### The Faithful Church / Philadelphia
 ### The Lukewarm Church / Leodicea
