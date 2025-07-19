@@ -441,3 +441,10 @@ Laodicea was actually destroyed by an earthquake but was rebuilt because of its 
 >' “And to the angel of the church in Laodicea write: ‘The words of the Amen, the faithful and true witness, the beginning of God’s creation.'
 ==Revelation 3:14==
 https://www.bible.com/bible/59/REV.3.14
+
+- The word amen means 'so be it' ' it is done' 'it is finished'
+- The fai
+
+>' “‘I know your works: you are neither cold nor hot. Would that you were either cold or hot!'
+==Revelation 3:15==
+https://www.bible.com/bible/59/REV.3.15
