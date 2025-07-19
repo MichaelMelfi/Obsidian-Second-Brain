@@ -465,9 +465,12 @@ https://www.bible.com/bible/59/REV.3.16
 ==Revelation 3:17==
 https://www.bible.com/bible/59/REV.3.17
 
-- This is being lukewarm.
+- This is being lukewarm!
 - You are so deceived that you see yourself as rich and great but you are not. You see yourself by your outward appearance but your insides are Wretched.
 
 >'I counsel you to buy from me gold refined by fire, so that you may be rich, and white garments so that you may clothe yourself and the shame of your nakedness may not be seen, and salve to anoint your eyes, so that you may see. '
 ==Revelation 3:18==
 https://www.bible.com/bible/59/REV.3.18
+
+- He is not talking about literal gold. He is talking about spiritual riches that you can only get from God.
+- 
