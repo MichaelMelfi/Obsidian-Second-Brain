@@ -459,8 +459,17 @@ https://www.bible.com/bible/59/REV.3.16
 
  - Jesus is saying this because in this time they would have got their water from the spring in Hierapolis which was many miles away. It would start fresh and drinkable but by the time it would get to this city it would be lukewarm and leave a fowl taste in your mouth.
 
- - The spiritual Luke warmness is described in the below verses.
+ - The spiritual Luke warmness is described in the below verse.
 
 >'For you say, I am rich, I have prospered, and I need nothing, not realizing that you are wretched, pitiable, poor, blind, and naked. '
 ==Revelation 3:17==
 https://www.bible.com/bible/59/REV.3.17
+
+- This is being lukewarm.
+- You are so disseaved that you see yourself as rich and great but you are not.
+
+
+
+>'I counsel you to buy from me gold refined by fire, so that you may be rich, and white garments so that you may clothe yourself and the shame of your nakedness may not be seen, and salve to anoint your eyes, so that you may see. '
+==Revelation 3:18==
+https://www.bible.com/bible/59/REV.3.18
