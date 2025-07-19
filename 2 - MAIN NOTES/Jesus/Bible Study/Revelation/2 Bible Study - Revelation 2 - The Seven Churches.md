@@ -41,8 +41,9 @@ AD 1730-1900 (Philadelphia) - Missionary Church (Travel becomes a lot easier and
 AD 1900-Present (Laodicea) - Apostate Church
 
 
-## The Seven Churches
+# The Seven Churches
 ![[sevenchurches1.webp]]
+## Revelations 2
 ### The Loveless Church / Ephesus
 Ephesus means - The name is thought to mean something like **“desirable”** or **“permitted”**, but **there is no firm agreement among scholars**.
 
