@@ -497,7 +497,7 @@ https://www.bible.com/bible/59/REV.3.20'The
 https://www.bible.com/bible/59/REV.3.21
 
 - We will reign with Him.
-- We are not worthy and never have been and never will be b
+- We are not worthy and never have been and never will be by ourselves but by Jesus' blood we are made worthy.
 
 >'He who has an ear, let him hear what the Spirit says to the churches.’”'
 ==Revelation 3:22==
