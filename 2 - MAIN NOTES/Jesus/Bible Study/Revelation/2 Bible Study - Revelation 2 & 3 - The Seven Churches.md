@@ -295,7 +295,7 @@ https://www.bible.com/bible/111/REV.2.29
 ### The Dead Church / Sardis
 
 AD 1517-1730 (Sardis) - Reformed Church.
-Martin Luther gets saved and goes against the church and takes the church out of the dark ages and away from Catholicism.
+Martin Luther w and goes against the church and takes the church out of the dark ages and away from Catholicism.
 This is a good thing no?
 
 
