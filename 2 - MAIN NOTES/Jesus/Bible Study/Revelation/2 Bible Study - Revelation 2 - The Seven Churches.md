@@ -295,6 +295,6 @@ https://www.bible.com/bible/111/REV.2.29
 AD 1517-1730 (Sardis) - Reformed Church (Martin Luther gets saved and goes against
 
 Known for clothing, trade routes etc, a rich city
-The city was built on a mountain that was inpregnable and everyone belived they were comlpetely safe
+The city was built on a mountain that was impregnable and everyone believed they were completely safe, however, till today it was breached twice and both times was because the town wasn't being watchful / The thought they were so safe they got lazy and stopped watching out for the enemy.
 ### The Faithful Church / Philadelphia
 ### The Lukewarm Church / Leodicea
