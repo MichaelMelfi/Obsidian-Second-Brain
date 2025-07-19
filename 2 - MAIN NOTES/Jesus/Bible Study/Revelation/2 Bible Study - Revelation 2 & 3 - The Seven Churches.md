@@ -330,6 +330,10 @@ Strengthen what they have left, they do not need extra stuff, they just need to 
 Remember what God has done for them, remember Jesus and his mission, remember the gospel, remember to trust God and His promises.
 
 4. Obey
-Do what God says, remember what God has told you and given you and act on it
+Do what God says, remember what God has told you and given you and act on it.
+
+5. Repent
+Ask for forgiveness, you appear to be alive but you are actually dead
+Turn away from what they are doing and turn back to God
 ### The Faithful Church / Philadelphia
 ### The Lukewarm Church / Leodicea
