@@ -434,8 +434,12 @@ https://www.bible.com/bible/59/REV.3.13
 Laodicea - 
 
 AD 1900-Present (Laodicea) - Apostate Church
-It says that most people in the last days will be apostates.
+It says that most people in the last days will be apostates (people who abandons or renounces their fatih)
 
+'But understand this, that in the last days there will come times of difficulty. For people will be lovers of self, lovers of money, proud, arrogant, abusive, disobedient to their parents, ungrateful, unholy, heartless, unappeasable, slanderous, without self-control, brutal, not loving good, treacherous, reckless, swollen with conceit, lovers of pleasure rather than lovers of God, having the appearance of godliness, but denying its power. Avoid such people. '
+
+2 Timothy 3:1-5
+https://www.bible.com/bible/59/2TI.3.1-5
 
 Laodicea was actually destroyed by an earthquake but was rebuilt because of its amount of wealth.
 
