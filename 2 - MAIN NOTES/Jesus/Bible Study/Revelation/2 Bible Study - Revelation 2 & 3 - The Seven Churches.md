@@ -479,10 +479,13 @@ https://www.bible.com/bible/59/REV.3.18
 >'For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at himself and goes away and at once forgets what he was like. '
 ==James 1:23-24==
 https://www.bible.com/bible/59/JAS.1.23-24
+the word of God shows up what we look like but a lot of us just walk away and forget how we look
+Are you willing to accept what the Word Of God says? when you do what it says that is you being a doer of the word.
 
 >'Those whom I love, I reprove and discipline, so be zealous and repent. '
 ==Revelation 3:19==
 https://www.bible.com/bible/59/REV.3.19
+
 
 >'Behold, I stand at the door and knock. If anyone hears my voice and opens the door, I will come in to him and eat with him, and he with me. '
 ==Revelation 3:20==
