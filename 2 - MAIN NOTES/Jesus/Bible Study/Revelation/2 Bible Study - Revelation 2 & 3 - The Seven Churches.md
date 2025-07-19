@@ -417,9 +417,9 @@ Do not let anyone steal your reward, do not let anyone distract you or take you 
 https://www.bible.com/bible/59/REV.3.12
 
 Why a pillar?
-- 
+- Permanent and unshakable in His kingdom.
 - You'll be eternally secure in Gods presence as He is always in the temple.
-- You are highly honoured by Him, 
+- You are highly honoured by Him. Pillars are usually named or decorated to honour important people
 >'He who has an ear, let him hear what the Spirit says to the churches.’ '
 ==Revelation 3:13==
 https://www.bible.com/bible/59/REV.3.13
