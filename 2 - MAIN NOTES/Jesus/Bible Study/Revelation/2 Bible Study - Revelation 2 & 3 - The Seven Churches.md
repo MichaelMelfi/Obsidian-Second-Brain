@@ -342,6 +342,7 @@ A thief never tells you when you are coming.
 https://www.bible.com/bible/59/1TH.5.1-8
 He is asking them to wake up otherwise they will miss Him when He comes back to the world!!
 The only people that will be surprised by His coming will be the unchristians.
+Christians will be awake and ready for Him.
 
 >'Yet you have still a few names in Sardis, people who have not soiled their garments, and they will walk with me in white, for they are worthy. '
 ==Revelation 3:4==
@@ -358,6 +359,7 @@ https://www.bible.com/bible/111/ZEC.3.4
 ==Revelation 3:5==
 https://www.bible.com/bible/59/REV.3.5
 - Clothing you in the garment of Righteousness
+
 >'He who has an ear, let him hear what the Spirit says to the churches.’ '
 ==Revelation 3:6==
 https://www.bible.com/bible/59/REV.3.6
