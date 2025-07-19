@@ -314,10 +314,11 @@ Jesus sees things we cannot see, we might see something alive but He can see the
 >'Wake up, and strengthen what remains and is about to die, for I have not found your works complete in the sight of my God. '
 ==Revelation 3:2==
 https://www.bible.com/bible/59/REV.3.2
-
-
 >'Remember, then, what you received and heard. Keep it, and repent. If you will not wake up, I will come like a thief, and you will not know at what hour I will come against you. '
 ==Revelation 3:3==
 https://www.bible.com/bible/59/REV.3.3
+
+God is saying 
+1. Wake up
 ### The Faithful Church / Philadelphia
 ### The Lukewarm Church / Leodicea
