@@ -336,13 +336,15 @@ Do what God says, remember what God has told you and given you and act on it.
 Ask for forgiveness, you appear to be alive but you are actually dead
 Turn away from what they are doing and turn back to God
 
+A thief never tells you when you are coming.
+
 
 >'Yet you have still a few names in Sardis, people who have not soiled their garments, and they will walk with me in white, for they are worthy. '
 ==Revelation 3:4==
 https://www.bible.com/bible/59/REV.3.4
 
 - Our own garments are not worthy of God, it says that our best works are like filthy rags to God.
-- We have our robes of righteousness from God, however, we can soil it meaning we can drag it through dirt of fill it with impurity or compromise (filling the robe of righteousness with the dirt of this world). (Zacharia)
+- We have our robes of righteousness from God, however, we can soil it meaning we can drag it through dirt of fill it with impurity or compromise (filling the robe of righteousness with the dirt of this world).
 >'The angel said to those who were standing before him, “Take off his filthy clothes.” Then he said to Joshua, “See, I have taken away your sin, and I will put fine garments on you.” '
 ==Zechariah 3:4==
 https://www.bible.com/bible/111/ZEC.3.4
@@ -351,7 +353,9 @@ https://www.bible.com/bible/111/ZEC.3.4
 >'The one who conquers will be clothed thus in white garments, and I will never blot his name out of the book of life. I will confess his name before my Father and before his angels. '
 ==Revelation 3:5==
 https://www.bible.com/bible/59/REV.3.5
-
+>'He who has an ear, let him hear what the Spirit says to the churches.’ '
+==Revelation 3:6==
+https://www.bible.com/bible/59/REV.3.6
 
 ### The Faithful Church / Philadelphia
 ### The Lukewarm Church / Leodicea
