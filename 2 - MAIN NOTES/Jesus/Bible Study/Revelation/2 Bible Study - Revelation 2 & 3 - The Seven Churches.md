@@ -303,8 +303,13 @@ The city was built on a mountain that was impregnable and everyone believed they
 ==Revelation 3:1==
 https://www.bible.com/bible/59/REV.3.1
 
-'Wake up, and strengthen what remains and is about to die, for I have not found your works complete in the sight of my God. '
-Revelation 3:2
+- What is the seven Spirits?
+- Some say it is just a re
+
+>'Wake up, and strengthen what remains and is about to die, for I have not found your works complete in the sight of my God. '
+==Revelation 3:2==
 https://www.bible.com/bible/59/REV.3.2
+
+
 ### The Faithful Church / Philadelphia
 ### The Lukewarm Church / Leodicea
