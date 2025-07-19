@@ -402,5 +402,12 @@ https://www.bible.com/bible/59/REV.3.9
 https://www.bible.com/bible/59/REV.3.10
 
 - You HAVE (past tense) kept my word. It does not say you WILL, it says you HAVE.
-Meaning that He is speaking about the great tribulation
+Meaning that He is speaking about the great tribulation.
+
+>'I am coming soon. Hold fast what you have, so that no one may seize your crown. '
+==Revelation 3:11==
+https://www.bible.com/bible/59/REV.3.11
+
+ - The Crown is the reward we get in heaven from the work we have done down here.
+Dont let anyone s
 ### The Lukewarm Church / Laodicea
