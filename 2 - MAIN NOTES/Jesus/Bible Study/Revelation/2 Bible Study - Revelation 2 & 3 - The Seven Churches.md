@@ -371,10 +371,14 @@ https://www.bible.com/bible/59/REV.3.5
 https://www.bible.com/bible/59/REV.3.6
 
 ### The Faithful Church / Philadelphia
+Philadelphia - Brotherly love
+
+AD 1730-1900 (Philadelphia) - Missionary Church (Travel becomes a lot easier and the                                      gospel exploded around the world with missionaries)
 
 
-' “And to the angel of the church in Philadelphia write: ‘The words of the holy one, the true one, who has the key of David, who opens and no one will shut, who shuts and no one opens.'
+>' “And to the angel of the church in Philadelphia write: ‘The words of the holy one, the true one, who has the key of David, who opens and no one will shut, who shuts and no one opens.'
 ==Revelation 3:7==
 https://www.bible.com/bible/59/REV.3.7
+
 
 ### The Lukewarm Church / Leodicea
