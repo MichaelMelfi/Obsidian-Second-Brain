@@ -386,7 +386,7 @@ https://www.bible.com/bible/59/REV.3.7
 ==Revelation 3:8==
 https://www.bible.com/bible/59/REV.3.8
 
-- The open door is referring to a evangelistic opportunity
+- The open door is referring to an evangelistic opportunity (missionaries)
 'for a wide door for effective work has opened to me, and there are many adversaries. '
 ==1 Corinthians 16:9==
 https://www.bible.com/bible/59/1CO.16.9
