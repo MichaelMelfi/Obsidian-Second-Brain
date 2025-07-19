@@ -473,4 +473,10 @@ https://www.bible.com/bible/59/REV.3.17
 https://www.bible.com/bible/59/REV.3.18
 
 - He is not talking about literal gold. He is talking about spiritual riches that you can only get from God.
-- 
+- Their Spirits are naked and clothed by nothing. their flesh is clothed but their inside is naked.
+
+
+>'Those whom I love, I reprove and discipline, so be zealous and repent. '
+==Revelation 3:19==
+https://www.bible.com/bible/59/REV.3.19
+
