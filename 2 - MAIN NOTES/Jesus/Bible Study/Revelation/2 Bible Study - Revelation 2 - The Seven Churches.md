@@ -291,6 +291,10 @@ https://www.bible.com/bible/111/REV.2.29
 
 
 ### The Dead Church / Sardis
-Known for 
+
+AD 1517-1730 (Sardis) - Reformed Church (Martin Luther gets saved and goes against
+
+Known for clothing, trade routes etc, a rich city
+The city was built on a mountain that was inpregnable and everyone belived they were comlpetely safe
 ### The Faithful Church / Philadelphia
 ### The Lukewarm Church / Leodicea
