@@ -486,7 +486,16 @@ Are you willing to accept what the Word Of God says? when you do what it says th
 ==Revelation 3:19==
 https://www.bible.com/bible/59/REV.3.19
 
-
 >'Behold, I stand at the door and knock. If anyone hears my voice and opens the door, I will come in to him and eat with him, and he with me. '
 ==Revelation 3:20==
-https://www.bible.com/bible/59/REV.3.20
+https://www.bible.com/bible/59/REV.3.20'The 
+
+- This is a promise for everyone, not just people who have back sliden
+
+>one who conquers, I will grant him to sit with me on my throne, as I also conquered and sat down with my Father on his throne. '
+==Revelation 3:21==
+https://www.bible.com/bible/59/REV.3.21
+
+>'He who has an ear, let him hear what the Spirit says to the churches.’”'
+==Revelation 3:22==
+https://www.bible.com/bible/59/REV.3.22
