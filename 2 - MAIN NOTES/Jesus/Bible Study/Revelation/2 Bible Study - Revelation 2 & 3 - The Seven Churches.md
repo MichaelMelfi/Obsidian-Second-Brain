@@ -443,7 +443,7 @@ Laodicea was actually destroyed by an earthquake but was rebuilt because of its 
 https://www.bible.com/bible/59/REV.3.14
 
 - The word amen means 'so be it' ' it is done' 'it is finished'
-- The fai
+- The faithful and true witness - He is saying He is 100% true and everything He is about to say is true.
 
 >' “‘I know your works: you are neither cold nor hot. Would that you were either cold or hot!'
 ==Revelation 3:15==
