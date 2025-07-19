@@ -335,5 +335,13 @@ Do what God says, remember what God has told you and given you and act on it.
 5. Repent
 Ask for forgiveness, you appear to be alive but you are actually dead
 Turn away from what they are doing and turn back to God
+
+
+>'Yet you have still a few names in Sardis, people who have not soiled their garments, and they will walk with me in white, for they are worthy. '
+==Revelation 3:4==
+https://www.bible.com/bible/59/REV.3.4
+
+Our garments are not worthy of God, it says that our best works are like filthy rags to God.
+
 ### The Faithful Church / Philadelphia
 ### The Lukewarm Church / Leodicea
