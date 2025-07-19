@@ -411,9 +411,12 @@ https://www.bible.com/bible/59/REV.3.11
  - The Crown is the reward we get in heaven from the work we have done down here.
 Do not let anyone steal your reward, do not let anyone distract you or take you away from the path of God.
 
+
 >'The one who conquers, I will make him a pillar in the temple of my God. Never shall he go out of it, and I will write on him the name of my God, and the name of the city of my God, the new Jerusalem, which comes down from my God out of heaven, and my own new name. '
 ==Revelation 3:12==
 https://www.bible.com/bible/59/REV.3.12
 
-
+>'He who has an ear, let him hear what the Spirit says to the churches.’ '
+==Revelation 3:13==
+https://www.bible.com/bible/59/REV.3.13
 ### The Lukewarm Church / Laodicea
