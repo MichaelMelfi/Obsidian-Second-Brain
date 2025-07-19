@@ -306,7 +306,10 @@ https://www.bible.com/bible/59/REV.3.1
 - What is the seven Spirits?
 1. Some say it is just a reference to Gods completeness as the number of completion is seven.
 2. Others say it is the seven fold Spirit (Seven characteristics of the Holy Spirit)
-Either way the seven Spirits and the seven stars (The seven angels) is something that God has, given how he speaks about it
+Either way the seven Spirits and the seven stars (The seven angels/messengers) are something that God HAS, given how he speaks about it. He claims ownership over them.
+They belong to Him
+
+
 
 >'Wake up, and strengthen what remains and is about to die, for I have not found your works complete in the sight of my God. '
 ==Revelation 3:2==
