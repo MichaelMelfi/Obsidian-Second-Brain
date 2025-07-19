@@ -294,9 +294,14 @@ https://www.bible.com/bible/111/REV.2.29
 ## Revelations 3
 ### The Dead Church / Sardis
 
-AD 1517-1730 (Sardis) - Reformed Church (Martin Luther gets saved and goes against
+AD 1517-1730 (Sardis) - Reformed Church.
+Martin Luther gets saved and goes against the church and takes the church out of the dark ages and away from Catholicism.
+This is a good thing no?
 
-Known for clothing, trade routes etc, a rich city
+
+
+
+Sardis was known for clothing, trade routes etc, a rich city
 The city was built on a mountain that was impregnable and everyone believed they were completely safe, however, till today it was breached twice and both times was because the town wasn't being watchful / The thought they were so safe they got lazy and stopped watching out for the enemy.
 
 >' “And to the angel of the church in Sardis write: ‘The words of him who has the seven spirits of God and the seven stars. “‘I know your works. You have the reputation of being alive, but you are dead.'
