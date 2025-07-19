@@ -38,7 +38,7 @@ AD 313-590 (Pergamum) - State Church (The emperor became Christian)
 AD 590-1517 (Thyatira) - Papal Church (The Roman Catholic Church ruled and rained                                    with the pope in the dark ages and was doing lots of bad                                    things)
 AD 1517-1730 (Sardis) - Reformed Church (Martin Luther gets saved and goes against                                the Roman Catholic Church and nailed his ideas on the                                        wittenberg door which reforms the church)
 AD 1730-1900 (Philadelphia) - Missionary Church (Travel becomes a lot easier and the                                      gospel exploded around the world with missionaries)
-AD 1900-Present (Laodicea) - Apostate Church
+AD 1900-Present (Laodicea) - Apostate Church (people who will abandon / renounce their faith)
 
 
 # The Seven Churches
@@ -434,11 +434,10 @@ https://www.bible.com/bible/59/REV.3.13
 Laodicea - 
 
 AD 1900-Present (Laodicea) - Apostate Church
-It says that most people in the last days will be apostates (people who abandons or renounces their fatih)
+It says that most people in the last days will become apostates (people who abandons or renounces their faith)
 
-'But understand this, that in the last days there will come times of difficulty. For people will be lovers of self, lovers of money, proud, arrogant, abusive, disobedient to their parents, ungrateful, unholy, heartless, unappeasable, slanderous, without self-control, brutal, not loving good, treacherous, reckless, swollen with conceit, lovers of pleasure rather than lovers of God, having the appearance of godliness, but denying its power. Avoid such people. '
-
-2 Timothy 3:1-5
+>'But understand this, that in the last days there will come times of difficulty. For people will be lovers of self, lovers of money, proud, arrogant, abusive, disobedient to their parents, ungrateful, unholy, heartless, unappeasable, slanderous, without self-control, brutal, not loving good, treacherous, reckless, swollen with conceit, lovers of pleasure rather than lovers of God, having the appearance of godliness, but denying its power. Avoid such people. '
+==2 Timothy 3:1-5==
 https://www.bible.com/bible/59/2TI.3.1-5
 
 Laodicea was actually destroyed by an earthquake but was rebuilt because of its amount of wealth.
