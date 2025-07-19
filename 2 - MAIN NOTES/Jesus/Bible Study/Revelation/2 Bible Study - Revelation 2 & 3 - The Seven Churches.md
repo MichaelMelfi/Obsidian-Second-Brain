@@ -337,7 +337,10 @@ Ask for forgiveness, you appear to be alive but you are actually dead
 Turn away from what they are doing and turn back to God
 
 A thief never tells you when you are coming.
-
+>'Now concerning the times and the seasons, brothers, you have no need to have anything written to you. For you yourselves are fully aware that the day of the Lord will come like a thief in the night. While people are saying, “There is peace and security,” then sudden destruction will come upon them as labor pains come upon a pregnant woman, and they will not escape. But you are not in darkness, brothers, for that day to surprise you like a thief. For you are all children of light, children of the day. We are not of the night or of the darkness. So then let us not sleep, as others do, but let us keep awake and be sober. For those who sleep, sleep at night, and those who get drunk, are drunk at night. But since we belong to the day, let us be sober, having put on the breastplate of faith and love, and for a helmet the hope of salvation. '
+==1 Thessalonians 5:1-8==
+https://www.bible.com/bible/59/1TH.5.1-8
+He is aksing them to wake up otherwise they will miss 
 
 >'Yet you have still a few names in Sardis, people who have not soiled their garments, and they will walk with me in white, for they are worthy. '
 ==Revelation 3:4==
@@ -354,8 +357,6 @@ https://www.bible.com/bible/111/ZEC.3.4
 ==Revelation 3:5==
 https://www.bible.com/bible/59/REV.3.5
 - Clothing you in the garment of Righteousness
-
-
 >'He who has an ear, let him hear what the Spirit says to the churches.’ '
 ==Revelation 3:6==
 https://www.bible.com/bible/59/REV.3.6
