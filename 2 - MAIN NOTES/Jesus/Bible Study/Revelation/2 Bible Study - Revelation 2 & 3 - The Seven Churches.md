@@ -341,9 +341,11 @@ Turn away from what they are doing and turn back to God
 ==Revelation 3:4==
 https://www.bible.com/bible/59/REV.3.4
 
-Our own garments are not worthy of God, it says that our best works are like filthy rags to God.
-We have our robes of righteousness from God and we can soil it meaning we can drag it through dirt of fill it with impurity.
-
+- Our own garments are not worthy of God, it says that our best works are like filthy rags to God.
+- We have our robes of righteousness from God and we can soil it meaning we can drag it through dirt of fill it with impurity. (Zacharia)
+>'The angel said to those who were standing before him, “Take off his filthy clothes.” Then he said to Joshua, “See, I have taken away your sin, and I will put fine garments on you.” '
+==Zechariah 3:4==
+https://www.bible.com/bible/111/ZEC.3.4
 
 ### The Faithful Church / Philadelphia
 ### The Lukewarm Church / Leodicea
