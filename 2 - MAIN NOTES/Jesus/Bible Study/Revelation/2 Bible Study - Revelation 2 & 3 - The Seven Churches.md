@@ -392,5 +392,14 @@ https://www.bible.com/bible/59/REV.3.8
 https://www.bible.com/bible/59/1CO.16.9
 
 
+>'Behold, I will make those of the synagogue of Satan who say that they are Jews and are not, but lie—behold, I will make them come and bow down before your feet, and they will learn that I have loved you. '
+==Revelation 3:9==
+https://www.bible.com/bible/59/REV.3.9
 
+
+>'Because you have kept my word about patient endurance, I will keep you from the hour of trial that is coming on the whole world, to try those who dwell on the earth. 
+==Revelation 3:10==
+https://www.bible.com/bible/59/REV.3.10
+
+- You HAVE (past tense) 
 ### The Lukewarm Church / Laodicea
