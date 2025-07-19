@@ -294,14 +294,13 @@ https://www.bible.com/bible/111/REV.2.29
 ## Revelations 3
 ### The Dead Church / Sardis
 Sardis means - Those escaping
+They were escaping from the dark ages and the Roman Catholic Church
+
 AD 1517-1730 (Sardis) - Reformed Church.
 Martin Luther who was a Catholic Priest and goes against the church and takes the church out of the dark ages and away from Catholicism but nailing the reformation on the door of the church in Belgium
 This is a good thing no?
 It was a good thing but it didn't go far enough.
-Luther still held to Catholic views, they came away from Roman Catholicism but not all the way.
-
-
-
+Luther still held to some Catholic views. They came away from Roman Catholicism but not all the way.
 
 Sardis was known for clothing, trade routes etc, a rich city
 The city was built on a mountain that was impregnable and everyone believed they were completely safe, however, till today it was breached twice and both times was because the town wasn't being watchful / The thought they were so safe they got lazy and stopped watching out for the enemy.
@@ -372,4 +371,10 @@ https://www.bible.com/bible/59/REV.3.5
 https://www.bible.com/bible/59/REV.3.6
 
 ### The Faithful Church / Philadelphia
+
+
+' “And to the angel of the church in Philadelphia write: ‘The words of the holy one, the true one, who has the key of David, who opens and no one will shut, who shuts and no one opens.'
+==Revelation 3:7==
+https://www.bible.com/bible/59/REV.3.7
+
 ### The Lukewarm Church / Leodicea
