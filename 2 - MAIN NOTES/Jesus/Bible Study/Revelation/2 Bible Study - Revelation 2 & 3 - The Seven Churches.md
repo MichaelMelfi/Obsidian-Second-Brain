@@ -320,13 +320,16 @@ https://www.bible.com/bible/59/REV.3.3
 
 The five exhortations to the Church at Sardis
 God is saying 
-1. Wake up t
+1. Wake up
 They need to keep watch, they have got lazy, they have forgotten to look out for the enemy otherwise they will get overrun
 
 2. Strengthen what remains
 Strengthen what they have left, they do not need extra stuff, they just need to work on what they already have and trust in it.
 
 3. Remember
-Remember what God has done for them, remember Jesu
+Remember what God has done for them, remember Jesus and his mission, remember the gospel, remember to trust God and His promises.
+
+4. Obey
+Do what God says, remember what God has told you and given you and act on it
 ### The Faithful Church / Philadelphia
 ### The Lukewarm Church / Leodicea
