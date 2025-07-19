@@ -457,7 +457,7 @@ https://www.bible.com/bible/59/REV.3.15
 ==Revelation 3:16==
 https://www.bible.com/bible/59/REV.3.16
 
- - Jesus is saying this because in this time they would have got their water from the spring in Higheropolis 
+ - Jesus is saying this because in this time they would have got their water from the spring in Hierapolis which was many miles away. It would start fresh and drinkable but by the time it would get to this city it would be lukewarm.
 
 >'For you say, I am rich, I have prospered, and I need nothing, not realizing that you are wretched, pitiable, poor, blind, and naked. '
 ==Revelation 3:17==
