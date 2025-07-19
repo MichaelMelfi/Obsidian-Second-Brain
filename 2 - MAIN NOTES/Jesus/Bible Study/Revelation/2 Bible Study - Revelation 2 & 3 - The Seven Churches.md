@@ -138,7 +138,7 @@ https://www.bible.com/bible/111/REV.2.11
 ==Revelation 20:14-15==
 https://www.bible.com/bible/111/REV.20.14-15
 ### The Compromising or State Church / Pergamum
-Pergamum means Thurley married
+Pergamum - Thurley married
 Because it is like some of the church is married to the pagan practices just like the Israelites stated to get married to the Moabite woman in Numbers because of Balaam.
 
 AD 313-590 (Pergamum) - State Church (The emperor, Constantine,  became Christian)
@@ -380,5 +380,9 @@ AD 1730-1900 (Philadelphia) - Missionary Church (Travel becomes a lot easier and
 ==Revelation 3:7==
 https://www.bible.com/bible/59/REV.3.7
 
+- Jesus emphasises His power and authority to stop and start things.
 
+>' “‘I know your works. Behold, I have set before you an open door, which no one is able to shut. I know that you have but little power, and yet you have kept my word and have not denied my name.'
+==Revelation 3:8==
+https://www.bible.com/bible/59/REV.3.8
 ### The Lukewarm Church / Leodicea
