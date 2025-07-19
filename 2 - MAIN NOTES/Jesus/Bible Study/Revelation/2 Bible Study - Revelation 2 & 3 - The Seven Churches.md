@@ -434,6 +434,8 @@ https://www.bible.com/bible/59/REV.3.13
 Laodicea - 
 
 AD 1900-Present (Laodicea) - Apostate Church
+It says that most people in the last days will be apostates.
+
 
 Laodicea was actually destroyed by an earthquake but was rebuilt because of its amount of wealth.
 
