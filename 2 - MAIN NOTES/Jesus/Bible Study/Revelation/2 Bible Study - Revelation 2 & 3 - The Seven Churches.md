@@ -423,7 +423,7 @@ Why a pillar?
 
 What do the names mean?
 1. The name of God is - OWNERSHIP, by God (I belong to Him) Revelation 7:30 and 14:1
-2. The New jerusalem is - CITIZENSHIP, in Heaven (My eternal home) Revelation 21
+2. The New Jerusalem is - CITIZENSHIP, in Heaven (My eternal home) Revelation 21
 3. My own new name is - UNIONSHIP with Christ (I share in His identity and Glory) Revelation 19:12
 
 
