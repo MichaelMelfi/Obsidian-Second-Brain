@@ -293,11 +293,13 @@ https://www.bible.com/bible/111/REV.2.29
 
 ## Revelations 3
 ### The Dead Church / Sardis
-
+Sardis means - Those escaping
 AD 1517-1730 (Sardis) - Reformed Church.
 Martin Luther who was a Catholic Priest and goes against the church and takes the church out of the dark ages and away from Catholicism but nailing the reformation on the door of the church in Belgium
 This is a good thing no?
-It was a good thing but it 
+It was a good thing but it didn't go far enough.
+Luther still held to Catholic views, they came away from Roman Catholicism but not all the way.
+
 
 
 
