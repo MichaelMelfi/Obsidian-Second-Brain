@@ -3,7 +3,7 @@
 ##### Status:
 
 ##### Tags: 
-[[Christian]] [[Youtube]] [[Preach]] [[Benny Hinn]] [[Elijah]] [[Elisha]] [[Seasons]] 
+[[Christian]] [[YouTube]] [[Preach]] [[Benny Hinn]] [[Elijah]] [[Elisha]] [[Seasons]] 
 ##### Links:
 
 ##### What Did I Learn From This Teaching?:

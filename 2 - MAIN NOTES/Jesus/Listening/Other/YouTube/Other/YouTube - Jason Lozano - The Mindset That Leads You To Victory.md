@@ -3,7 +3,7 @@
 ##### Status:
 #FListening 
 ##### Tags: 
-[[Youtube]] [[Jason Lozano]] [[Victory]] [[Mindsets]] [[David]] [[Joshua]] [[Giants]] [[Strongholds]] [[2 Corinthians]] [[2 Corinthians 10]] [[3 John]] [[3 John 1]] [[Psalms]] [[Psalms 1]] [[Joshua]] [[Joshua 1]] [[1 Samuel]] [[1 Samuel 30]] [[Strengthen]] [[Courage]] [[Meditate]] [[Day and Night]] [[Renew Your Mind]]
+[[YouTube]] [[Jason Lozano]] [[Victory]] [[Mindsets]] [[David]] [[Joshua]] [[Giants]] [[Strongholds]] [[2 Corinthians]] [[2 Corinthians 10]] [[3 John]] [[3 John 1]] [[Psalms]] [[Psalms 1]] [[Joshua]] [[Joshua 1]] [[1 Samuel]] [[1 Samuel 30]] [[Strengthen]] [[Courage]] [[Meditate]] [[Day and Night]] [[Renew Your Mind]]
 
 ##### Links:
 https://youtu.be/oAHd2B4EaWA?si=42xnHrAK9kN3_Phb

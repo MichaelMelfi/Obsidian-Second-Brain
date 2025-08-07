@@ -2,7 +2,7 @@
 
 Status: #MListening
 
-Tags: [[Youtube]] [[John Bevere]] [[Fear The Lord]] [[Teaching]] [[Exodus]] [[Christian]]
+Tags: [[YouTube]] [[John Bevere]] [[Fear The Lord]] [[Teaching]] [[Exodus]] [[Christian]]
 
 # YouTube - John Bevere - Fear The Lord
 

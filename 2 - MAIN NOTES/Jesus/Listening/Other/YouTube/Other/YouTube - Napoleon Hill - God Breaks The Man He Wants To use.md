@@ -3,7 +3,7 @@
 ##### Status:
 
 ##### Tags: 
-[[Youtube]] [[Napoleon Hill]] [[Preach]] [[Breaking]] [[Pushing Through]]
+[[YouTube]] [[Napoleon Hill]] [[Preach]] [[Breaking]] [[Pushing Through]]
 ##### Links:
 https://youtu.be/qKe5aVxygbY?si=igsUpHWKa03vEvb6
 ##### What Did I Learn From This Teaching?:

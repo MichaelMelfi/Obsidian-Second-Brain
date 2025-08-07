@@ -3,7 +3,7 @@
 ##### Status:
 #FListening 
 ##### Tags: 
-[[Christian]] [[Preach]] [[Youtube]] [[Anointing]] [[2 kings]] [[2 kings 2]] [[Elijah]] [[Elisha]] [[2 Kings 4]] [[Faith]] [[Flesh]] [[3 - TAGS/Victory]] [[Eyes Of The Spirit]] [[Benny Hinn]] [[Jordan]] [[Company]] [[Gilgal]] [[Bethel]] [[Jericho]] [[Spirit]] [[Mantel]]
+[[Christian]] [[Preach]] [[YouTube]] [[Anointing]] [[2 kings]] [[2 kings 2]] [[Elijah]] [[Elisha]] [[2 Kings 4]] [[Faith]] [[Flesh]] [[3 - TAGS/Victory]] [[Eyes Of The Spirit]] [[Benny Hinn]] [[Jordan]] [[Company]] [[Gilgal]] [[Bethel]] [[Jericho]] [[Spirit]] [[Mantel]]
 ##### Links:
 
 ##### What Did I Learn From This Teaching?:

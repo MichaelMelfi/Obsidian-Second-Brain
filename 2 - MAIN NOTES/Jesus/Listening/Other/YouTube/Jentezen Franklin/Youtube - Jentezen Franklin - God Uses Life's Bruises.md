@@ -2,7 +2,7 @@
 
 ##### Status:
 #FListening 
-##### Tags: [[Welcome/3 - TAGS/Youtube|Youtube]] [[Jentezen Franklin]] [[Bruises]] [[Welcome/3 - TAGS/Preach|Preach]] [[Welcome/3 - TAGS/1 Kings|1 Kings]] [[1 Kings 20]] [[Judges 9]] [[Judges]] [[1 Chronicles 2]] [[1 Chronicles]] [[2 Corinthians 12]] [[2 Corinthians]] [[Don't Give Up]] [[Keep Going]] [[Trials]] [[Victory]] 
+##### Tags: [[YouTube|YouTube]] [[Jentezen Franklin]] [[Bruises]] [[Welcome/3 - TAGS/Preach|Preach]] [[Welcome/3 - TAGS/1 Kings|1 Kings]] [[1 Kings 20]] [[Judges 9]] [[Judges]] [[1 Chronicles 2]] [[1 Chronicles]] [[2 Corinthians 12]] [[2 Corinthians]] [[Don't Give Up]] [[Keep Going]] [[Trials]] [[Victory]] 
 
 ##### Links:
 https://www.youtube.com/watch?v=iZuizV1jtQk

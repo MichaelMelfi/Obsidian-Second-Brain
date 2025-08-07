@@ -2,7 +2,7 @@
 
 Status: #FListening 
 
-Tags: [[Youtube]] [[Myles Munroe]] [[Faith]] [[Preach]] [[Strengthen]] [[life]] [[Christian]] [[Moments]]
+Tags: [[YouTube]] [[Myles Munroe]] [[Faith]] [[Preach]] [[Strengthen]] [[life]] [[Christian]] [[Moments]]
 
 # YouTube - Myles Munroe - How To Strengthen Your Faith (Expecting The Unexpected)
 

@@ -3,7 +3,7 @@
 ##### Status:
 
 ##### Tags: 
-[[Youtube]] [[Hard Times]] [[Wisdom]] [[Faith]] [[Endurance]] [[James]] [[James 1]]  [[Romans]] [[Romans 10]] [[Christian]]
+[[YouTube]] [[Hard Times]] [[Wisdom]] [[Faith]] [[Endurance]] [[James]] [[James 1]]  [[Romans]] [[Romans 10]] [[Christian]]
 ##### Links:
 https://youtu.be/w0CQjAaKs5M?si=tF9E9MGtrdcxQYF3
 ##### What Did I Learn From This Teaching?:

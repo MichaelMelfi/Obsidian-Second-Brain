@@ -3,7 +3,7 @@
 ##### Status:
 #FListening 
 ##### Tags: 
-[[Youtube]] [[Robert Madu]] [[Planted, not buried]] [[Planted]] [[Jeremiah]] [[Jeremiah 17]] [[Matthew 6]] [[Matthew]] [[Philippians 4]] [[Philippians]] [[Trees]] [[Water]] [[Anxiety]] [[purpose]]
+[[YouTube]] [[Robert Madu]] [[Planted, not buried]] [[Planted]] [[Jeremiah]] [[Jeremiah 17]] [[Matthew 6]] [[Matthew]] [[Philippians 4]] [[Philippians]] [[Trees]] [[Water]] [[Anxiety]] [[purpose]]
 ##### Links:
 https://www.youtube.com/watch?v=wLOMRaeS45U&ab_channel=SocialDallas
 ##### What Did I Learn From This Teaching?:
