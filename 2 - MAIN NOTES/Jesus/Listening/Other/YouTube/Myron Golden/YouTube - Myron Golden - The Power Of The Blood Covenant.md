@@ -3,7 +3,7 @@
 ##### Status:
 #FListening 
 ##### Tags: 
-[[YouTube]] [[Myron Golden]] [[The Blood Covenant]] [[Blood]] [[Genesis]] [[Genesis 15]] 
+[[YouTube]] [[Myron Golden]] [[The Blood Covenant]] [[Blood]] [[Genesis]] [[Genesis 15]] [[Hebrew]]
 ##### Links:
 https://www.youtube.com/watch?v=5YIrmHf572Y&ab_channel=MyronGolden
 ##### What Did I Learn From This Teaching?:
