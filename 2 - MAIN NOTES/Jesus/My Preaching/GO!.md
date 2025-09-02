@@ -88,10 +88,11 @@ You shall walk as children of light, you have God inside of you!
 It says you were darkness and you are now light 
 light is
 truth, holiness, knowledge, purity, life.
+**God Himself is light**
+> “God is light, and in him is no darkness at all.” (1 John 1:5)
+
 - **Light = truth and goodness**  
     → Opposite of deceit, sin, and evil (darkness).
-- **Light = life in Christ**
-    > “In him was life, and the life was the light of men.” (John 1:4)
 - **Light = guidance*
     > “Your word is a lamp to my feet and a light to my path.” (Psalm 119:105)
 
