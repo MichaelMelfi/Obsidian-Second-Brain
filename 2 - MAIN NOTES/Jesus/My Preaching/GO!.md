@@ -9,7 +9,7 @@ Usually in Roman times when an emperor came back after a battle they would come 
 So what is the good news of the gospel?
 It is the news that we have victory over death, that we aren't just on the winning side but Jesus won the victory 2000 years ago, that Jesus went down to the depths hell, bore our sin, sham and death but on the 3rd day He rose from death and was exalted to the right hand of the Father, He defeated Satan, took back the keys of death, hell and the grave and is now alive and through Him anyone who accepts Jesus into their life will be saved and have eternal life.
 
-Go in Greek is a plural word which is saying everyone!
+'GO' in the original Greek is using plural word which is saying everyone go!
 It is not talking about one person but everyone must go and do this.
 Go means travel, to go somewhere, you cannot go and stay still.
 So many say they are following Jesus but they haven't moved anywhere, they aren't reading their bible they aren't trying to know everything about God.
