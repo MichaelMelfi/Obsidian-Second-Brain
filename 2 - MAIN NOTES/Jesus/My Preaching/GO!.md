@@ -86,7 +86,7 @@ Welcome up band.
 ==Ephesians 5:8==
 https://www.bible.com/bible/59/EPH.5.8
 
-You shall walk as children of light, you have God inside of you!
+==You Are Light==
 It says you were darkness and you are now light 
 light is
 truth, holiness, knowledge, purity, life.
