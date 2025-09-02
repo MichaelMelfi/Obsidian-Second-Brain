@@ -5,14 +5,14 @@
 ==Mark 16:15-18==
 https://www.bible.com/bible/59/MRK.16.15-18
 
-### What is the gospel / the good news?
+### ==What is the gospel / the good news?==
 Usually in Roman times when an emperor came back after a battle they would come back with good news which meant they had won the battle and got victory.
 
 So what is the good news of the gospel?
 It is the news that we have victory over death, that we aren't just on the winning side but Jesus won the victory 2000 years ago, that Jesus went down to the depths hell, bore our sin, sham and death and rose again on the 3rd day and was exalted to the right hand of the Father, He defeated Satan, took back the keys of death, hell and the grave and is now alive and through Him anyone who accepts Jesus into their life will be saved and have eternal life.
 We now don't need to live in bondage, chains etc
 
-### 'GO' 
+### =='GO'== 
 in the original Greek for this verse uses a plural word meaning EVERYONE go!
 It is not talking about one person but everyone must go and do this.
 Go means to travel or to go somewhere, you cannot go and stay still.
