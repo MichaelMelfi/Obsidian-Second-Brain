@@ -104,6 +104,8 @@ Spotlight on me, this is how you look in spirit.
 
 freestyle
 
+lights come back up
+
 bring up the Cross.
 They will write on it people that they are wanting saved.
 encourage them to try and include a friend that they will invite to youth
