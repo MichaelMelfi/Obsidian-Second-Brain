@@ -1,15 +1,17 @@
 
-==Go into all the world and preach the gospel==
+## ==Go into all the world and preach the gospel==
 >'And he said to them, “Go into all the world and proclaim the gospel to the whole creation. Whoever believes and is baptized will be saved, but whoever does not believe will be condemned. And these signs will accompany those who believe: in my name they will cast out demons; they will speak in new tongues; they will pick up serpents with their hands; and if they drink any deadly poison, it will not hurt them; they will lay their hands on the sick, and they will recover.” '
 ==Mark 16:15-18==
 https://www.bible.com/bible/59/MRK.16.15-18
 
-What is the gospel / the good news?
+### What is the gospel / the good news?
 Usually in Roman times when an emperor came back after a battle they would come back with good news which meant they had won the battle and got victory.
+
 So what is the good news of the gospel?
 It is the news that we have victory over death, that we aren't just on the winning side but Jesus won the victory 2000 years ago, that Jesus went down to the depths hell, bore our sin, sham and death but on the 3rd day He rose from death and was exalted to the right hand of the Father, He defeated Satan, took back the keys of death, hell and the grave and is now alive and through Him anyone who accepts Jesus into their life will be saved and have eternal life.
 
-'GO' in the original Greek is using plural word which is saying everyone go!
+### 'GO' 
+in the original Greek is using plural word which is saying everyone go!
 It is not talking about one person but everyone must go and do this.
 Go means travel, to go somewhere, you cannot go and stay still.
 So many say they are following Jesus but they haven't moved anywhere, they aren't reading their bible they aren't trying to know everything about God.
