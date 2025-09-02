@@ -28,10 +28,10 @@ The word world in Mark and John is the same word in the Greek.
 The Greek word is _kosmos_ - Humanity as a whole
 If the word was ethnē this would mean only specific communities and groups.
 
-But because it is the word _kosmos_ both of these texts mean God so loved humanity as a whole that we must Go into all of humanity as a whole and preach the gospel.
+But because it is the word _kosmos_ both of these texts this means God so loved humanity as a whole that we must Go into all of humanity as a whole and preach the gospel.
 
 This means your school, your friends, your family, people on the street, instead of just walking past a homeless person how about you talk to them and share the gospel. Ask people if they need prayer for anything, share your testimony to them! 
-God works through your testimony, He has trusted you to go through what you've been through and get out the other side and help other people that have struggled with similar things.
+God works through your testimony, He has trusted you to go through what you've been through because He knew you would get out the other side and help other people that have struggled with similar things.
 
 Some might say, but oh I'm scared, I'm fearful, what if something happens, what if my friends reject me, what if, what if. 
 WHAT IF YOUR FRIENDS DONT MAKE IT TO HEAVEN, WHAT IF YOUR FAMILY MEMBER DOESNT MAKE IT TO HEAVEN.
