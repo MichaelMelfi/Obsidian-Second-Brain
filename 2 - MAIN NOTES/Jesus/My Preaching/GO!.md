@@ -32,6 +32,9 @@ But because it is the word _kosmos_ both of these texts this means God so loved 
 
 This means your school, your friends, your family, people on the street, instead of just walking past a homeless person how about you talk to them and share the gospel. Ask people if they need prayer for anything, share your testimony to them! 
 God works through your testimony, He has trusted you to go through what you've been through because He knew you would get out the other side and help other people that have struggled with similar things.
+- You have been healed so you can heal other people
+- You were saved so you can save other people through God
+- You were brought out of that addiction so you can help bring others out of that addiction
 
 Some might say, but oh I'm scared, I'm fearful, what if something happens, what if my friends reject me, what if, what if. 
 WHAT IF YOUR FRIENDS DONT MAKE IT TO HEAVEN, WHAT IF YOUR FAMILY MEMBER DOESNT MAKE IT TO HEAVEN.
