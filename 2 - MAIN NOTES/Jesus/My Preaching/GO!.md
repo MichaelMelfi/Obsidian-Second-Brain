@@ -64,7 +64,9 @@ What is valour?
 >- **ḥayil** = strength, army, wealth, valor.
 So “man of valour” = **a mighty warrior, strong and courageous in battle, someone of great worth.**
 
-Why is God calling him a mighty man of valour when he is scared, running away and hiding from the enemy?
+Why is God calling him a mighty man of valour when he is scared and running away and hiding from the enemy?
+
+Because God looks at what 
 
 You were darkness and you are now light
 Salt and light
