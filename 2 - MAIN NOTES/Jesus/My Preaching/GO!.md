@@ -59,7 +59,7 @@ https://www.bible.com/bible/59/JDG.6.11-12
 >==- It emphasizes **bravery that is proven through action**, not just an inner attitude.==
 >==The Hebrew phrase is: **גִּבּוֹר הַחַיִל (_gibbōr haḥayil_)**==
 >==- **gibbor** = mighty, strong, warrior.==
->==- **ḥayil** = strength, army, wealth, valor.==
+>==- **ḥayil** = strength, army, wealth, valour.==
 ==So “man of valour” = **a mighty warrior, strong and courageous in battle, someone of great worth.**==
 
 Why is God calling him a mighty man of valour when he is scared and running away and hiding from the enemy?
@@ -69,7 +69,7 @@ If you carry on with the story of Gideon. Gideon goes on to destroy the whole Mi
 But God is all you need!
 Do not look at your now, look at yourself through Gods eyes, through Gods lenses
 
-I could talk about David, a outcast Shepard boy who ended up killing a giant and becoming one of the best kings to have ever existed.
+I could talk about David, an outcast Shepard boy who ended up killing a giant and becoming one of the best kings to have ever existed.
 
 You can talk about any of the disciples, they were just teenagers the oldest most likely being Peter who was still only early 20s, the rest being under 20! 
 And they turned the world upside down.
