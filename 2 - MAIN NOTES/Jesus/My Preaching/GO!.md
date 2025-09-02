@@ -96,6 +96,8 @@ truth, holiness, knowledge, purity, life.
 Light is your identity!
 It says WALK as children of light
 
-
+Everything go black.
+This is the world, the world is dark.
+Spotlight on me, this is how you look in spirit.
 
 Salt and light
