@@ -4,7 +4,10 @@
 Mark 16:15-18
 https://www.bible.com/bible/59/MRK.16.15-18
 
-Go in Greek is a plural word which is saying
+Go in Greek is a plural word which is saying everyone!
+It is not talking about one person but everyone must go and do this.
+Go means travel, to go somewhere, you cannot go and stay still
+
 
 Comfort zone - never experience Gods comfort if you don't leave your own comfort zone
 
