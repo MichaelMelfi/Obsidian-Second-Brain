@@ -80,5 +80,7 @@ But this is all because they realised who they were, they knew personally that t
 They knew if God is for me, who can be against me.
 They knew if I walk through the valley of the shadow of death I shall fear no evil!
 
-You were darkness and you are now light
+'for at one time you were darkness, but now you are light in the Lord. Walk as children of light '
+Ephesians 5:8
+https://www.bible.com/bible/59/EPH.5.8
 Salt and light
