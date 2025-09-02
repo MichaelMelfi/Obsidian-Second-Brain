@@ -53,7 +53,8 @@ Judges 6:11.
 ==Judges 6:11-12==
 https://www.bible.com/bible/59/JDG.6.11-12
 
-Mighty Man of valour
+Why is God calling him a mighty man of valour when he is scared, running away and hiding from the enemy?
+
 
  
 You were darkness and you are now light
