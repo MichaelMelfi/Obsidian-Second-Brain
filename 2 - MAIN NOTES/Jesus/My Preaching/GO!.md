@@ -1,7 +1,7 @@
 
 ==Go into all the world and preach the gospel==
 >'And he said to them, “Go into all the world and proclaim the gospel to the whole creation. Whoever believes and is baptized will be saved, but whoever does not believe will be condemned. And these signs will accompany those who believe: in my name they will cast out demons; they will speak in new tongues; they will pick up serpents with their hands; and if they drink any deadly poison, it will not hurt them; they will lay their hands on the sick, and they will recover.” '
-Mark 16:15-18
+==Mark 16:15-18==
 https://www.bible.com/bible/59/MRK.16.15-18
 
 Go in Greek is a plural word which is saying everyone!
@@ -12,13 +12,15 @@ And TBH if you say you are following someone but haven't gone anywhere for them 
 We are called to follow God and GO INTO ALL THE WORLD AND PREACH THE GOSPEL.
 WORLD is talking about the whole world/ the whole of humanity, 
 
-“For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life.'
-John 3:16
+>“For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life.'
+==John 3:16==
 https://www.bible.com/bible/59/JHN.3.16 
 
 The Greek of the word world in Mark and John is the same in the Greek.
 The Greek word is _kosmos_ - Humanity as a whole
-If tje word was ethnē this would 
+If the word was ethnē this would mean only specific communities and groups.
+
+
 
 
 some might say, but oh I'm scared, I'm fearful, what if something happens, what if my friends reject me, what if, what if. 
