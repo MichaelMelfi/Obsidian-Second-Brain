@@ -20,7 +20,7 @@ The Greek of the word world in Mark and John is the same in the Greek.
 The Greek word is _kosmos_ - Humanity as a whole
 If the word was ethnē this would mean only specific communities and groups.
 
-
+But because it is the word _kosmos_ both of these texts mean God so loved humanity 
 
 
 some might say, but oh I'm scared, I'm fearful, what if something happens, what if my friends reject me, what if, what if. 
