@@ -41,16 +41,14 @@ Some might say, but oh I'm scared, I'm fearful, what if something happens, what 
 WHAT IF YOUR FRIENDS DONT MAKE IT TO HEAVEN, WHAT IF YOUR FAMILY MEMBER DOESNT MAKE IT TO HEAVEN.
 You would have to hate some one to not tell them about Jesus.
 So many Christians pray for God to grow them, make them stronger, make them more brave, give them opportunities but as soon as God puts something in front of you to help you grow, you run away because its out of your comfort zone. 
-You have to step out of your comfort zone, if you never leave your comfort one, you will never experience Gods comfort. If you never step out of your own comfort zone, there is no need for Gods comfort, because you can already deal with it yourself.
+You have to step out of your comfort zone, ==if you never leave your own comfort one, you will never experience Gods comfort==. If you never step out of your own comfort zone, there is no need for Gods comfort, because you can already deal with it yourself.
 
-### Gideon
+### ==Gideon==
 
 This is the story of Gideon who is one of my hero's in the bible.
 At this time Israel is being oppressed/bullied by the Midianites, who keep raiding and killing their land.
 Everyone is scared and running and hiding from the Midianites including Gideon.
 
-
-Judges 6:11.
 >'Now the angel of the Lord came and sat under the terebinth at Ophrah, which belonged to Joash the Abiezrite, while his son Gideon was beating out wheat in the winepress to hide it from the Midianites. And the angel of the Lord appeared to him and said to him, “The Lord is with you, O mighty man of valor.” '
 ==Judges 6:11-12==
 https://www.bible.com/bible/59/JDG.6.11-12
