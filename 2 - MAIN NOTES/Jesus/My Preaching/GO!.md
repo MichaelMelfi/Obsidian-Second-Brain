@@ -53,13 +53,23 @@ Judges 6:11.
 ==Judges 6:11-12==
 https://www.bible.com/bible/59/JDG.6.11-12
 
-Why is God calling him a mighty man of valour when he is scared, running away and hiding from the enemy?
+What is valour?
 ### **Definition**
 
 - **Great courage in the face of danger, especially in battle.**
     
 - It emphasizes **bravery that is proven through action**, not just an inner attitude.
 
+The Hebrew phrase is: **גִּבּוֹר הַחַיִל (_gibbōr haḥayil_)**
+
+- **gibbor** = mighty, strong, warrior.
+    
+- **ḥayil** = strength, army, wealth, valor.
+    
+
+So “man of valour” = **a mighty warrior, strong and courageous in battle, someone of great worth.**
+
+Why is God calling him a mighty man of valour when he is scared, running away and hiding from the enemy?
 
 You were darkness and you are now light
 Salt and light
