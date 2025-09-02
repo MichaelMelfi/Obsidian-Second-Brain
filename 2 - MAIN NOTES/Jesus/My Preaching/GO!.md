@@ -82,6 +82,8 @@ They knew if I walk through the valley of the shadow of death I shall fear no ev
 
 The tabernacle
 
+Welcome up band.
+
 >'for at one time you were darkness, but now you are light in the Lord. Walk as children of light '
 ==Ephesians 5:8==
 https://www.bible.com/bible/59/EPH.5.8
