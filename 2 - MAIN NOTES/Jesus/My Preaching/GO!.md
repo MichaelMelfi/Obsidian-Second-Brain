@@ -16,7 +16,8 @@ WORLD is talking about the whole world/ the whole of humanity,
 John 3:16
 https://www.bible.com/bible/59/JHN.3.16 
 
-can also mean nations and commonality between people.
+The Greek of the word world in Mark and John is the same in the Greek.
+
 
 some might say, but oh I'm scared, I'm fearful, what if something happens, what if my friends reject me, what if, what if. 
 WHAT IF YOUR FRIENDS DONT MAKE IT TO HEAVEN, WHAT IF YOUR FAMILY MEMBER DOESNT MAKE IT TO HEAVEN.
