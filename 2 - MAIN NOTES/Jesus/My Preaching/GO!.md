@@ -76,7 +76,9 @@ I could talk about David, a outcast Shepard boy who ended up killing a giant and
 You can talk about any of the disciples, they were just teenagers the oldest most likely being Peter who was still only early 20s, the rest being under 20! 
 And they turned the world upside down.
 
-But this is all because they realised who they were, they knew personally that they were Children of God this wasnt a fantasy to them, this wasnt a Goid to church on a sunday or go to a youth group on a Friday but this was their life!
+But this is all because they realised who they were, they knew personally that they were Children of God this wasn't a fantasy to them, this wasn't a Go to church on a Sunday for them or go to a youth group on a Friday but this was their life!
+They knew if God is for me, who can be against me.
+They knew if I walk through the valley of the shadow of death I shall fear no evil!
 
 You were darkness and you are now light
 Salt and light
