@@ -7,11 +7,11 @@ https://www.bible.com/bible/59/MRK.16.15-18
 Go in Greek is a plural word which is saying everyone!
 It is not talking about one person but everyone must go and do this.
 Go means travel, to go somewhere, you cannot go and stay still.
-So many say they are following Jesus but they haven't moved anywhere, they arent reading their bible they aren't trying to know everything about God.
+So many say they are following Jesus but they haven't moved anywhere, they aren't reading their bible they aren't trying to know everything about God.
 And TBH if you say you are following someone but haven't gone anywhere for them it sounds more like a spectator than a follower.
-
 We are called to follow God and GO INTO ALL THE WORLD AND PREACH THE GOSPEL.
-WORLD can also mean nations and commonality between people.
+WORLD is talking about the whole world Just like in John 3:16  can also mean nations and commonality between people.
+
 some might say, but oh I'm scared, I'm fearful, what if something happens, what if my friends reject me, what if, what if. 
 WHAT IF YOUR FRIENDS DONT MAKE IT TO HEAVEN, WHAT IF YOUR FAMILY MEMBER DOESNT MAKE IT TO HEAVEN.
 You would have to hate some one to not tell them about Jesus.
