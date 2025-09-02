@@ -38,6 +38,10 @@ You have to step out of your comfort zone, if you never leave your comfort one, 
 
 
 Judges 6:11.
+>'Now the angel of the Lord came and sat under the terebinth at Ophrah, which belonged to Joash the Abiezrite, while his son Gideon was beating out wheat in the winepress to hide it from the Midianites. And the angel of the Lord appeared to him and said to him, “The Lord is with you, O mighty man of valor.” '
+==Judges 6:11-12==
+https://www.bible.com/bible/59/JDG.6.11-12
+
 This is the story of Gideon who is one of my hero's in the bible.
 At this time Israel is being oppressed/bullied by the midianites, who keep raiding and killing their land.
 Everyone is scared and running and hiding from the Midianites including Gideon.
