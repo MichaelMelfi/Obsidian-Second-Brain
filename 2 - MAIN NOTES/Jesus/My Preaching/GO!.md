@@ -103,6 +103,8 @@ Spotlight on me, this is how you look in spirit.
 freestyle
 
 bring up the Cross.
-They will write on it people that they will bring to youth.
+They will write on it people that they are wanting saved.
+encourage them to try and include a friend that they will invite to youth
 
+Go into 
 Salt and light
