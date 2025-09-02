@@ -93,6 +93,9 @@ truth, holiness, knowledge, purity, life.
 **God Himself is light**
 > “God is light, and in him is no darkness at all.” (1 John 1:5)
 
+Light is your identity!
+It says WALK as children of light
+
 
 
 Salt and light
