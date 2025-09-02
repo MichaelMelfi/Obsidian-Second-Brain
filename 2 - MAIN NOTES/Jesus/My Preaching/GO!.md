@@ -37,7 +37,9 @@ So many Christians pray for God to grow them, make them stronger, make them more
 You have to step out of your comfort zone, if you never leave your comfort one, you will never experience Gods comfort. If you never step out of your own comfort zone, there is no need for Gods comfort, because you can already deal with it yourself.
 
 
-I want to turn to Judges
+Judges 6:11.
+This is the story of Gideon who is one of my hero's in the bible.
+
 Mighty Man of valour
 
  
