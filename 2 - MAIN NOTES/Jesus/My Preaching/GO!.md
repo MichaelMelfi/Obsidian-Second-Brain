@@ -9,7 +9,8 @@ It is not talking about one person but everyone must go and do this.
 Go means travel, to go somewhere, you cannot go and stay still.
 So many say they are following Jesus but they haven't moved anywhere, they arent reading their bible they aren't trying to know everything about God.
 And TBH if you say you are following someone but havent gone anywhere for them it sounds more like a spectator than a follower.
-We are called to follow God and GO
+We are called to follow God and GO INTO ALL THE WORLD AND PREACH THE GOSPEL.
+some might say, but oh im scared, im fearful, 
 
 
 Comfort zone - never experience Gods comfort if you don't leave your own comfort zone
