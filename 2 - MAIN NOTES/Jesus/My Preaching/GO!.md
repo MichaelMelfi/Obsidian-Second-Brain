@@ -27,7 +27,7 @@ If the word was ethnē this would mean only specific communities and groups.
 
 But because it is the word _kosmos_ both of these texts mean God so loved humanity as a whole that we must Go into all of humanity as a whole and preach the gospel.
 
-This means your schoo, yo
+This means your school, your friends, your family, people on the street, instead of just walking past a homeless person how about you talk to them and share the gospel. Ask people if they need prayer for 
 
 some might say, but oh I'm scared, I'm fearful, what if something happens, what if my friends reject me, what if, what if. 
 WHAT IF YOUR FRIENDS DONT MAKE IT TO HEAVEN, WHAT IF YOUR FAMILY MEMBER DOESNT MAKE IT TO HEAVEN.
