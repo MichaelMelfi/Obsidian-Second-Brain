@@ -14,8 +14,8 @@ We now don't need to live in bondage, chains etc
 ### 'GO' 
 in the original Greek for this verse uses a plural word meaning EVERYONE go!
 It is not talking about one person but everyone must go and do this.
-Go means travel, to go somewhere, you cannot go and stay still.
-So many say they are following Jesus but they haven't moved anywhere, they aren't reading their bible they aren't trying to know everything about God.
+Go means to travel or to go somewhere, you cannot go and stay still.
+So many Christians say they are following Jesus but they haven't moved anywhere since accepting Him into their l, they aren't reading their bible they aren't trying to know everything about God.
 And TBH if you say you are following someone but haven't gone anywhere for them it sounds more like a spectator than a follower.
 We are called to follow God and GO INTO ALL THE WORLD AND PREACH THE GOSPEL.
 WORLD is talking about the whole world / the whole of humanity, 
