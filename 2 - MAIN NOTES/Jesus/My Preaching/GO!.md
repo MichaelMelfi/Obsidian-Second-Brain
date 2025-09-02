@@ -30,7 +30,7 @@ But because it is the word _kosmos_ both of these texts mean God so loved humani
 This means your school, your friends, your family, people on the street, instead of just walking past a homeless person how about you talk to them and share the gospel. Ask people if they need prayer for anything, share your testimony to them! 
 God works through your testimony, He has trusted you to go through what you've been through and get out the other side and help other people that have struggled with similar things.
 
-some might say, but oh I'm scared, I'm fearful, what if something happens, what if my friends reject me, what if, what if. 
+Some might say, but oh I'm scared, I'm fearful, what if something happens, what if my friends reject me, what if, what if. 
 WHAT IF YOUR FRIENDS DONT MAKE IT TO HEAVEN, WHAT IF YOUR FAMILY MEMBER DOESNT MAKE IT TO HEAVEN.
 You would have to hate some one to not tell them about Jesus.
 So many Christians pray for God to grow them, make them stronger, make them more brave, give them opportunities but as soon as God puts something in front of you to help you grow, you run away because its out of your comfort zone. 
