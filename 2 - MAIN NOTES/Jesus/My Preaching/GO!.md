@@ -12,7 +12,7 @@ And TBH if you say you are following someone but havent gone anywhere for them i
 We are called to follow God and GO INTO ALL THE WORLD AND PREACH THE GOSPEL.
 some might say, but oh I'm scared, I'm fearful, what if something happens, what if my friends reject me, what if, what if. WHAT IF THEY DONT MAKE IT TO HEAVEN.
 You have to step out of your comfort zone, if you never leave your comfort one, you will never experience Gods comfort. If you never step out of your own comfort zone, there is no need for Gods comfort.
-So many Christians pray for God to grow them, make them stronger, make them more brave, give them oppertunities but as soon as God puts something in front of you to help you and grow you 
+So many Christians pray for God to grow them, make them stronger, make them more brave, give them opportunities but as soon as God puts something in front of you to help you and grow you, you run away because its out of your comfort zone. 
 
 
 Comfort zone - never experience Gods comfort if you don't leave your own comfort zone
