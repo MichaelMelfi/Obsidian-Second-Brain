@@ -17,7 +17,7 @@ in the original Greek for this verse uses a plural word meaning EVERYONE go!
 It is not talking about one person but everyone must go and do this.
 Go means to travel or to go somewhere, you cannot go and stay still.
 When someone starts following Jesus they start to move! There is something in them which means they read their bible they are doing everything they can to know everything they can about God.
- you are following someone but haven't gone anywhere for them it sounds more like a spectator than a follower.
+When someone says they are following Jesus they go from simply being a spectator to being a follower - a disciple.
 We are called to follow God and GO INTO ALL THE WORLD AND PREACH THE GOSPEL.
 The word WORLD is talking about the whole world / the whole of humanity, 
 
