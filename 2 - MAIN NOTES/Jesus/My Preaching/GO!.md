@@ -5,7 +5,8 @@
 https://www.bible.com/bible/59/MRK.16.15-18
 
 What is the gospel / the good news?
-Usually in Roman times
+Usually in Roman times when an emperor came back after a battle they would come back with the good news of the battle meaning they had victory and won.
+
 Go in Greek is a plural word which is saying everyone!
 It is not talking about one person but everyone must go and do this.
 Go means travel, to go somewhere, you cannot go and stay still.
