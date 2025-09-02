@@ -11,7 +11,7 @@ So many say they are following Jesus but they haven't moved anywhere, they arent
 And TBH if you say you are following someone but havent gone anywhere for them it sounds more like a spectator than a follower.
 We are called to follow God and GO INTO ALL THE WORLD AND PREACH THE GOSPEL.
 some might say, but oh I'm scared, I'm fearful, what if something happens, what if my friends reject me, what if, what if. WHAT IF THEY DONT MAKE IT TO HEAVEN.
-You have
+You have to step out of your comfort zone, if you never leave your comfort one, you will never experience Gods comfort. If you never step out of your comfort zone, there is no 
 
 
 Comfort zone - never experience Gods comfort if you don't leave your own comfort zone
