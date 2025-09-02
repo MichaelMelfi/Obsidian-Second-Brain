@@ -93,9 +93,6 @@ truth, holiness, knowledge, purity, life.
 **God Himself is light**
 > “God is light, and in him is no darkness at all.” (1 John 1:5)
 
-- **Light = truth and goodness**  
-    → Opposite of deceit, sin, and evil (darkness).
-- **Light = guidance*
-    > “Your word is a lamp to my feet and a light to my path.” (Psalm 119:105)
+
 
 Salt and light
