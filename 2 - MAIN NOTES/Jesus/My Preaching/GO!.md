@@ -54,8 +54,12 @@ Judges 6:11.
 https://www.bible.com/bible/59/JDG.6.11-12
 
 Why is God calling him a mighty man of valour when he is scared, running away and hiding from the enemy?
+### **Definition**
+
+- **Great courage in the face of danger, especially in battle.**
+    
+- It emphasizes **bravery that is proven through action**, not just an inner attitude.
 
 
- 
 You were darkness and you are now light
 Salt and light
