@@ -15,7 +15,7 @@ Go means travel, to go somewhere, you cannot go and stay still.
 So many say they are following Jesus but they haven't moved anywhere, they aren't reading their bible they aren't trying to know everything about God.
 And TBH if you say you are following someone but haven't gone anywhere for them it sounds more like a spectator than a follower.
 We are called to follow God and GO INTO ALL THE WORLD AND PREACH THE GOSPEL.
-WORLD is talking about the whole world/ the whole of humanity, 
+WORLD is talking about the whole world / the whole of humanity, 
 
 >“For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life.'
 ==John 3:16==
