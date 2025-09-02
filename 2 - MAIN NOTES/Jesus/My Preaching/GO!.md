@@ -53,18 +53,18 @@ Everyone is scared and running and hiding from the Midianites including Gideon.
 ==Judges 6:11-12==
 https://www.bible.com/bible/59/JDG.6.11-12
 
-What is valour?
->**Definition**
->- **Great courage in the face of danger, especially in battle.** 
->- It emphasizes **bravery that is proven through action**, not just an inner attitude.
->The Hebrew phrase is: **גִּבּוֹר הַחַיִל (_gibbōr haḥayil_)**
->- **gibbor** = mighty, strong, warrior.
->- **ḥayil** = strength, army, wealth, valor.
-So “man of valour” = **a mighty warrior, strong and courageous in battle, someone of great worth.**
+==What is valour?==
+>==**Definition**==
+>==- **Great courage in the face of danger, especially in battle.**== 
+>==- It emphasizes **bravery that is proven through action**, not just an inner attitude.==
+>==The Hebrew phrase is: **גִּבּוֹר הַחַיִל (_gibbōr haḥayil_)**==
+>==- **gibbor** = mighty, strong, warrior.==
+>==- **ḥayil** = strength, army, wealth, valor.==
+==So “man of valour” = **a mighty warrior, strong and courageous in battle, someone of great worth.**==
 
 Why is God calling him a mighty man of valour when he is scared and running away and hiding from the enemy?
 
-Because God looks at what you will be, not what you are now!
+Because ==God looks at what you will be, not what you are now!==
 If you carry on with the story of Gideon. Gideon goes on to destroy the whole Midianite army of 135,000 soldiers with only 300 soldiers and no weapons, they only had God!
 But God is all you need!
 Do not look at your now, look at yourself through Gods eyes, through Gods lenses
