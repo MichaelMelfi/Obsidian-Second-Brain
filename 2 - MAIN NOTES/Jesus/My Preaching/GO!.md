@@ -71,7 +71,7 @@ If you carry on with the story of Gideon. Gideon goes on to destroy the whole Mi
 But God is all you need!
 Do not look at your now, look at yourself through Gods eyes, through Gods lenses
 
-I could t
+I could talk about David, a outcast Shepard boy who ended up killing a giant and becoming one of the best kings to have ever existed.
 
 You were darkness and you are now light
 Salt and light
