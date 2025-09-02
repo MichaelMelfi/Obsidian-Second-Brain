@@ -85,13 +85,14 @@ They knew if I walk through the valley of the shadow of death I shall fear no ev
 https://www.bible.com/bible/59/EPH.5.8
 
 You shall walk as children of light, you have God inside of you!
-It says you were darkness and you are now light, light is truth, light is
+It says you were darkness and you are now light 
+light is
+truth, holiness, knowledge, purity, life.
 - **Light = truth and goodness**  
     → Opposite of deceit, sin, and evil (darkness).
 - **Light = life in Christ**
     > “In him was life, and the life was the light of men.” (John 1:4)
-- **Light = guidance**
-    
+- **Light = guidance*
     > “Your word is a lamp to my feet and a light to my path.” (Psalm 119:105)
 
 Salt and light
