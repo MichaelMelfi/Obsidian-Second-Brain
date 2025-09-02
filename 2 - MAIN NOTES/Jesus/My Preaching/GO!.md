@@ -43,7 +43,7 @@ Judges 6:11.
 https://www.bible.com/bible/59/JDG.6.11-12
 
 This is the story of Gideon who is one of my hero's in the bible.
-At this time Israel is being oppressed/bullied by the midianites, who keep raiding and killing their land.
+At this time Israel is being oppressed/bullied by the Midianites, who keep raiding and killing their land.
 Everyone is scared and running and hiding from the Midianites including Gideon.
 
 Mighty Man of valour
