@@ -47,7 +47,6 @@ You have to step out of your comfort zone, if you never leave your comfort one, 
 This is the story of Gideon who is one of my hero's in the bible.
 At this time Israel is being oppressed/bullied by the Midianites, who keep raiding and killing their land.
 Everyone is scared and running and hiding from the Midianites including Gideon.
-Now an angel comes down to speak with Gideon as God is rising him up to be the next Judge of Israel and have him lead Israel into victory from Midianites.
 
 
 Judges 6:11.
