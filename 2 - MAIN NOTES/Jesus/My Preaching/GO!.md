@@ -37,11 +37,8 @@ So many Christians pray for God to grow them, make them stronger, make them more
 You have to step out of your comfort zone, if you never leave your comfort one, you will never experience Gods comfort. If you never step out of your own comfort zone, there is no need for Gods comfort, because you can already deal with it yourself.
 
 
-Comfort zone - never experience Gods comfort if you don't leave your own comfort zone
-
 Mighty Man of valour
 
-You would have to hate some one to not tell them about Jesus
  
 You were darkness and you are now light
 Salt and light
