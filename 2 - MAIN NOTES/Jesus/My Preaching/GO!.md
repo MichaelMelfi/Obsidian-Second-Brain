@@ -66,7 +66,8 @@ So “man of valour” = **a mighty warrior, strong and courageous in battle, so
 
 Why is God calling him a mighty man of valour when he is scared and running away and hiding from the enemy?
 
-Because God looks at what 
+Because God looks at what you will be, not what you are now!
+If you carry on with the story of Gideon. Gideon goes on to take down the whole Midianite army with only 300 soldier
 
 You were darkness and you are now light
 Salt and light
