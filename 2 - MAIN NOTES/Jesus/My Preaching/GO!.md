@@ -21,11 +21,11 @@ WORLD is talking about the whole world / the whole of humanity,
 ==John 3:16==
 https://www.bible.com/bible/59/JHN.3.16 
 
-The Greek of the word world in Mark and John is the same in the Greek.
+The word world in Mark and John is the same word in the Greek.
 The Greek word is _kosmos_ - Humanity as a whole
 If the word was ethnē this would mean only specific communities and groups.
 
-But because it is the word _kosmos_ both of these texts mean God so loved humanity as a whole and this is why we shoulld Go into all of humanity as a whole and preach the gospel.
+But because it is the word _kosmos_ both of these texts mean God so loved humanity as a whole that we must Go into all of humanity as a whole and preach the gospel.
 
 
 some might say, but oh I'm scared, I'm fearful, what if something happens, what if my friends reject me, what if, what if. 
