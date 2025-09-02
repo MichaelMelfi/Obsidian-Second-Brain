@@ -73,5 +73,7 @@ Do not look at your now, look at yourself through Gods eyes, through Gods lenses
 
 I could talk about David, a outcast Shepard boy who ended up killing a giant and becoming one of the best kings to have ever existed.
 
+You can talk about any of the disciples, they were just teenagers the oldest most likely being P
+
 You were darkness and you are now light
 Salt and light
