@@ -7,7 +7,7 @@ https://www.bible.com/bible/59/MRK.16.15-18
 What is the gospel / the good news?
 Usually in Roman times when an emperor came back after a battle they would come back with good news which meant they had won the battle and got victory.
 So what is the good news of the gospel?
-It is the news that we have victory over death, that we arent just on the winning side but Jesus won the victory 2000 years ago, that Jesus went down to the depths hell, bore our sin, sham and death and defeated Satan, took back the keys of death, hell and the grave and is now alive and through Him we now have eternal life.
+It is the news that we have victory over death, that we aren't just on the winning side but Jesus won the victory 2000 years ago, that Jesus went down to the depths hell, bore our sin, sham and death and defeated Satan, took back the keys of death, hell and the grave and is now alive and through Him we now have eternal life.
 
 Go in Greek is a plural word which is saying everyone!
 It is not talking about one person but everyone must go and do this.
