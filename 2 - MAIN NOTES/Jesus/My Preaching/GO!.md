@@ -4,6 +4,8 @@
 Mark 16:15-18
 https://www.bible.com/bible/59/MRK.16.15-18
 
+Go in Greek is a plural word which is saying
+
 Comfort zone - never experience Gods comfort if you don't leave your own comfort zone
 
 Mighty Man of valour
