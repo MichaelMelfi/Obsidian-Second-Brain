@@ -100,4 +100,9 @@ Everything go black.
 This is the world, the world is dark.
 Spotlight on me, this is how you look in spirit.
 
+freestyle
+
+bring up the Cross.
+They will write on it people that they will bring to youth.
+
 Salt and light
