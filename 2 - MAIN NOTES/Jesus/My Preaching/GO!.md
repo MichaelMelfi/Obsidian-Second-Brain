@@ -92,8 +92,6 @@ You shall walk as children of light, you have God inside of you!
 It says you were darkness and you are now light 
 light is
 truth, holiness, knowledge, purity, life.
-**God Himself is light**
-> “God is light, and in him is no darkness at all.” (1 John 1:5)
 
 Light is your identity!
 It says WALK as children of light
