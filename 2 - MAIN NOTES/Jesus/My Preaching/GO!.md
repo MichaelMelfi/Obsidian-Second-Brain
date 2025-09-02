@@ -69,7 +69,9 @@ Why is God calling him a mighty man of valour when he is scared and running away
 Because God looks at what you will be, not what you are now!
 If you carry on with the story of Gideon. Gideon goes on to destroy the whole Midianite army of 135,000 soldiers with only 300 soldiers and no weapons, they only had God!
 But God is all you need!
+Do not look at your now, look at yourself through Gods eyes, through Gods lenses
 
+I could t
 
 You were darkness and you are now light
 Salt and light
