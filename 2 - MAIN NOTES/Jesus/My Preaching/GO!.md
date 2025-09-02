@@ -1,5 +1,6 @@
 ## Intro
-## ==Go into all the world and preach the gospel==
+## ==Go into all the world and proclaim the gospel to the whole creation==
+
 >'And he said to them, “Go into all the world and proclaim the gospel to the whole creation. Whoever believes and is baptized will be saved, but whoever does not believe will be condemned. And these signs will accompany those who believe: in my name they will cast out demons; they will speak in new tongues; they will pick up serpents with their hands; and if they drink any deadly poison, it will not hurt them; they will lay their hands on the sick, and they will recover.” '
 ==Mark 16:15-18==
 https://www.bible.com/bible/59/MRK.16.15-18
