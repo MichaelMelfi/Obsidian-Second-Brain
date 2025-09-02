@@ -8,7 +8,7 @@ Go in Greek is a plural word which is saying everyone!
 It is not talking about one person but everyone must go and do this.
 Go means travel, to go somewhere, you cannot go and stay still.
 So many say they are following Jesus but they haven't moved anywhere, they arent reading their bible they aren't trying to know everything about God.
-And TBH if you say you are following someone but havent gone anywhere for them it sounds more like a spectator than a follower.
+And TBH if you say you are following someone but haven't gone anywhere for them it sounds more like a spectator than a follower.
 We are called to follow God and GO INTO ALL THE WORLD AND PREACH THE GOSPEL.
 some might say, but oh I'm scared, I'm fearful, what if something happens, what if my friends reject me, what if, what if. 
 WHAT IF YOUR FRIENDS DONT MAKE IT TO HEAVEN, WHAT IF YOUR FAMILY MEMBER DOESNT MAKE IT TO HEAVEN.
