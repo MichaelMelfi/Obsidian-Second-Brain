@@ -5,7 +5,7 @@
 ==Mark 16:15-18==
 https://www.bible.com/bible/59/MRK.16.15-18
 
-### ==What is the gospel / the good news?==
+ ### ==What is the gospel / the good news?==
 Usually in Roman times when an emperor came back after a battle they would come back with good news which meant they had won the battle and got the victory.
 
 So what is the good news of the gospel?
