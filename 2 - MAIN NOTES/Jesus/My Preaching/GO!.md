@@ -115,11 +115,8 @@ Salt stops decay
 You cant stop the decay with only one grain of salt.
 You don't ever season a steak with one grain of salt.
 The more salt you put on something the longer it lasts.
-This is why it is so important that we all Go out and preach the gospel because just like salt the more of us that are on this world the less decay i
+This is why it is so important that we all Go out and preach the gospel not just pastors, not just leaders but everyone because just like salt the more of us that are on this world the less decay it it will have.
 
 bring up the Cross.
-
-
-
 They will write on it people that they are wanting saved.
 encourage them to try and include a friend that they will invite to youth
