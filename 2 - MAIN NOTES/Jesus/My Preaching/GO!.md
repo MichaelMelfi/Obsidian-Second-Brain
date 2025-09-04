@@ -83,6 +83,10 @@ The tabernacle
 
 Welcome up band.
 
+>' “You are the salt of the earth, but if salt has lost its taste, how shall its saltiness be restored? It is no longer good for anything except to be thrown out and trampled under people’s feet. “You are the light of the world. A city set on a hill cannot be hidden. Nor do people light a lamp and put it under a basket, but on a stand, and it gives light to all in the house. In the same way, let your light shine before others, so that they may see your good works and give glory to your Father who is in heaven.'
+==Matthew 5:13-16==
+https://www.bible.com/bible/59/MAT.5.13-16
+
 >'for at one time you were darkness, but now you are light in the Lord. Walk as children of light '
 ==Ephesians 5:8==
 https://www.bible.com/bible/59/EPH.5.8
