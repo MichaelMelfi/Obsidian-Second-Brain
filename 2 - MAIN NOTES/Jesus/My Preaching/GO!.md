@@ -114,7 +114,8 @@ Salt was one of the most valuable things back in Jesus' time.
 Salt stops decay
 You cant stop the decay with only one grain of salt.
 You don't ever season a steak with one grain of salt.
-The more salt you put on something 
+The more salt you put on something the longer it lasts.
+This is why it is so important that we all Go out and preach the gospel because just like salt the more of us that are on this world the less decay i
 
 bring up the Cross.
 
