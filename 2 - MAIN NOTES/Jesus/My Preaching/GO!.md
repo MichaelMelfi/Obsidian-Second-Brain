@@ -79,8 +79,6 @@ But this is all because they realised who they were, they knew personally that t
 They knew "if God is for me, who can be against me".
 They knew "if I walk through the valley of the shadow of death I shall fear no evil!"
 
-The tabernacle
-
 Welcome up band.
 
 >' “You are the salt of the earth, but if salt has lost its taste, how shall its saltiness be restored? It is no longer good for anything except to be thrown out and trampled under people’s feet. “You are the light of the world. A city set on a hill cannot be hidden. Nor do people light a lamp and put it under a basket, but on a stand, and it gives light to all in the house. In the same way, let your light shine before others, so that they may see your good works and give glory to your Father who is in heaven.'
@@ -109,7 +107,7 @@ freestyle
 
 lights come back up
 
-What is Salt?
+==You are salt==?
 Salt was one of the most valuable things back in Jesus' time.
 Salt stops decay
 You cant stop the decay with only one grain of salt.
