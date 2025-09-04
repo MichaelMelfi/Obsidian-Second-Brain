@@ -112,6 +112,8 @@ lights come back up
 bring up the Cross.
 
 What is Salt?
-Salt was one of the most valuable things back in Jesus'
+Salt was one of the most valuable things back in Jesus' time.
+Salt stops decay
+
 They will write on it people that they are wanting saved.
 encourage them to try and include a friend that they will invite to youth
