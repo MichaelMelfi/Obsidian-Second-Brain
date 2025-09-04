@@ -33,6 +33,7 @@ But because it is the word _kosmos_ in both of these texts this means God so lov
 
 This means we Go into our school, our friends, our family, people on the street, instead of just walking past a homeless person how about you talk to them and share the gospel. Ask people if they need prayer for anything, share your testimony to them! 
 God works through our testimony, He has trusted you to go through what you've been through because He knew you would get out the other side and help other people that have struggled with similar things.
+My testimony?
 - You have been healed so you can heal other people
 - You were saved so you can save other people through God
 - You were brought out of that addiction so you can help bring others out of that addiction
@@ -86,6 +87,8 @@ Welcome up band.
 ==Ephesians 5:8==
 https://www.bible.com/bible/59/EPH.5.8
 
+
+
 ==You Are Light==
 It says you were darkness and you are now light 
 light is
@@ -105,6 +108,3 @@ lights come back up
 bring up the Cross.
 They will write on it people that they are wanting saved.
 encourage them to try and include a friend that they will invite to youth
-
-Go into 
-Salt and light
