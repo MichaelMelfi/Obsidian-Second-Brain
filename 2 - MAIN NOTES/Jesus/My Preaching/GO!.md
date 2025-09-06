@@ -1,4 +1,29 @@
 ## Intro
+Great worship
+Thank the team and leaders
+
+Give god a ==shout of praise== to start off the year right.
+==Turn to your neighbour and say== 
+==Jesus is king==
+==Devil is defeated.==
+==We have victory.==
+
+==So excited.==
+How good has God been?
+Last year.
+
+==Next year== will be even better.
+==Fresh fire==
+==Fresh words==
+
+We have the year 7s in the house!
+We have to show the year 7s how Citygate youth do it.
+
+
+I wont be here
+I of course went to Cambodia for 6 months but i leave for Australia next week.
+
+
 ## ==Go into all the world and proclaim the gospel to the whole creation==
 
 >'And he said to them, “Go into all the world and proclaim the gospel to the whole creation. Whoever believes and is baptized will be saved, but whoever does not believe will be condemned. And these signs will accompany those who believe: in my name they will cast out demons; they will speak in new tongues; they will pick up serpents with their hands; and if they drink any deadly poison, it will not hurt them; they will lay their hands on the sick, and they will recover.” '
@@ -24,11 +49,10 @@ We ==aren’t just on the winning side== but our side won 2000 years ago!
 
 ### =='GO'== 
 Original Greek - ==plural word meaning EVERYONE go!==
-NOT ONE PERSON
-Go
+==NOT ONE PERSON==
 1. travel 
 2. To move
-3. Head somewhere
+3. Head toward something
 
 
 When someone starts ==following Jesus they start to move==! 
@@ -37,30 +61,33 @@ Something makes them ==want to read the Bible== and learn everything about God.
 
 They go from simply being a ==spectator to being a follower - a disciple.==
 
-==We are called to follow God== and ==GO INTO ALL THE WORLD AND PREACH THE GOSPEL.==
-The word WORLD is talking about ==the whole world / the whole of humanity,== 
+==We are called to follow God== and 
+==GO INTO ALL THE WORLD AND PREACH THE GOSPEL.==
+The word WORLD is talking about ==the whole world==
 
-==The Greek word for world is _kosmos==_ - Humanity as a whole / the universe. This is where we get the word Cosmos from
+==The Greek word for world is _kosmos==_ - Humanity as a whole. This is where we get the word Cosmos from
 Same as ==John 3:16 God so loved the world==
-==If the word was ethnē== this would mean only specific communities and groups.
 
-But because it is the word _kosmos_ this means ==God so loved humanity as a whole that we must Go into humanity as a whole and preach the gospel.==
+So this means ==God so loved humanity as a whole that we must Go into humanity as a whole and preach the gospel.==
 
-Go into our 
+All Go into our 
 - ==school==
 - ==friends==
 - ==family==
 - ==people on the street==
 - Ask people if they need ==prayer== for anything, ==When was the last time?==
+
 It ==doesn’t need to be perfect== it just needs to be ==honest.==
 - share your ==testimony==
+
+==My testimony==
 
 God works through our testimonys!
 He has trusted you to go through what you've been through because He knew you would get out the other side and help other people that have struggled with similar things.
 
-==My testimony==
 
-- You have been ==healed== so you can heal other people
+
+- ==You have been healed== so you can heal other people
 - You were ==saved== so you can save other people through God
 - You were brought out of that ==addiction or hard time== so you can help bring others out of that addiction
 
@@ -70,7 +97,7 @@ what if something happens
 what if my friends reject me
 what if, what if. 
 
-What if you get to ==heaven and your friends aren’t there==.
+==What if you get to heaven and your friends aren’t there==.
 What if we get to heaven and that ==one family member== that you always wanted to talk to about Jesus but never got to isn’t there
 
 ==We pray for God to grow us==
@@ -81,6 +108,8 @@ God puts something in front of us
 We Run away because it’s out of our comfort zone.
 We have to step out of we comfort zone, ==if we never leave our own comfort zone, we will never experience Gods comfort==. 
 If you never step out of your own comfort zone, ==there is no need for Gods comfort==, because you can already deal with it yourself.
+==Stop dreaming of things you can already afford.==
+==Stop dreaming of things you can already do yourself.==
 
 ### ==Gideon==
 
@@ -95,7 +124,6 @@ https://www.bible.com/bible/59/JDG.6.11-12
 ==What is valour?==
 >==**Definition**==
 >==- **Great courage in the face of danger, especially in battle.**== 
->==- It emphasizes **bravery that is proven through action**, not just an inner attitude.==
 >==The Hebrew phrase is: **גִּבּוֹר הַחַיִל (_gibbōr haḥayil_)**==
 >==- **gibbor** = mighty, strong, warrior.==
 >==- **ḥayil** = strength, army, wealth, valour.==
@@ -114,15 +142,11 @@ Gideon ==destroy the Midianites== army of ==135,000 soldiers== with only ==300 s
 Stop lookimg at your now, look at yourself through Gods eyes, through Gods lenses
 
 ### ==David==
-Outcast ==Shepard boy==
-==Killing a giant== and becoming one of the best kings to have ever existed.
-Jesus came from his blood line
-
+==The world saw David== as an outcast Shepard boy
+==God saw David== as a giant killer and a king of Israel.
 ### ==Disciples==
-They were just ==teenagers==!
-oldest most likely being Peter who was still only early 20s, the rest being under 20! 
-==And they turned the world upside down.==
-I like to say ==turned the world the right way up==
+The ==World== saw the disciples as just teenagers.
+==God saw== the disciples as world changers.
 
 But this is all because they ==realised who they were==
 Knew their ==identity==
@@ -185,8 +209,9 @@ freestyle
 
 lights come back up
 
+==Everyone stand up==
+
 ==You are salt==?
-Salt was one of the most valuable things back in Jesus' time.
 Salt stops decay
 You cant stop the decay with only one grain of salt.
 You don't ever season a steak with one grain of salt.
