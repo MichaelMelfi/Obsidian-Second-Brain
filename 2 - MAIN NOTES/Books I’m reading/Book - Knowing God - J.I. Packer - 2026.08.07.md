@@ -29,7 +29,7 @@ Create one final page and answer:
 - What topics or books do I want to study next?
 
 # Part 1 - Know The Lord
-### Summary of PART 1
+## Summary of PART 1
 
 I’ve never read a book like this and, to my delight, it has really taken me by surprise.
 
@@ -58,7 +58,7 @@ The way Packer has structured this first section of Knowing God has really taken
 
 It feels like the foundation for everything that follows. As Packer explained at the beginning, this is like learning about the volcano before trying to understand the environment around it. If God is the centre of everything, then understanding Him is the foundation for understanding everything else.
 
-### What I’ve learnt personally
+#### What I’ve learnt personally
 What this section has challenged me on:
 This has really challenged me to think about what I research and why I am researching it.
 It is so easy to become surrounded and suffocated by intricate details and small theological differences and, in doing so, miss the bigger picture of what God is actually saying. I naturally love the small details — the things that make you think, “Oh, that’s cool” — but those things don’t always contribute to transformation.
