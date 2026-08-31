@@ -150,6 +150,7 @@ https://bible.com/bible/114/psa.47.1.NKJV
 ## 9. Makal
 **”Dancing With Divine Delight”**
 ‘Makal’, meaning ‘to dance’ or ‘to leap for joy’, captures the essence of physical worship that is free and unbridled.
+
 “Then David danced before the Lord with all his might; and David was wearing a linen ephod.”
 ‭‭II Samuel‬ ‭6‬:‭14‬ ‭NKJV‬‬
 https://bible.com/bible/114/2sa.6.14.NKJV
