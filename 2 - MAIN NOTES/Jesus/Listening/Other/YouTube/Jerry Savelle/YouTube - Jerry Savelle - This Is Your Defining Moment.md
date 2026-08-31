@@ -2,7 +2,7 @@
 
 Status: #FListening 
 
-Tags: [[Christian]] [[YouTube]] [[Jerry Savelle]] [[Preach]] [[Defining Moment]]  [[Moments]] [[Mark]] [[mark 10]] [[Sowing and Reaping]] [[Genesis]] [[Genesis 24]] [[Genesis 12]] [[Proverbs]] [[Proverbs 11]] 
+Tags: [[Christian]] [[YouTube]] [[Jerry Savelle]] [[Preach]] [[Defining Moment]]  [[Moments]] [[Mark]] [[mark 10]] [[Sowing and Reaping]] [[Genesis]] [[Genesis 24]] [[Genesis 12]] [[Welcome/3 - TAGS/Proverbs]] [[Proverbs 11]] 
 
 # YouTube - Jerry Savell - This Is Your Defining Moment
 

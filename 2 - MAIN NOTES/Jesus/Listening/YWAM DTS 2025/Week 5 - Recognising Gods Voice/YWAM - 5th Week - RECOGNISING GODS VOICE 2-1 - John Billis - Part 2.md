@@ -2,7 +2,7 @@
 
 Status: #FListening 
 
-Tags: [[3 - TAGS/YWAM]] [[Christian]] [[Teaching]] [[John Billis]] [[Gods Voice]] [[Hearing]] [[Hearing Gods Voice]] [[Psalms]] [[Psalms 32]] [[Isaiah]] [[Isaiah 30]] [[John]] [[John 18]] [[Proverbs]] [[Proverbs 28]] [[Jeremiah]] [[Jeremiah 10]] [[Isaiah]] [[Isaiah 55]] [[Psalms]] [[Psalms 19]] [[John 5]] [[John 8]] [[John 10]] [[1 Kings]] [[1 Kings 19]] [[2 Timothy]] [[2 Timothy 3]] [[Romans]] [[Romans 10]] [[Exodus]] [[Exodus 3]] [[Matthew]] [[Matthew 3]] [[Acts]] [[Acts 9]] [[John 14]] [[Romans 8]] [[Philippians]] [[Philippians 4]] [[Acts 9]] [[Rhema Word]] 
+Tags: [[3 - TAGS/YWAM]] [[Christian]] [[Teaching]] [[John Billis]] [[Gods Voice]] [[Hearing]] [[Hearing Gods Voice]] [[Psalms]] [[Psalms 32]] [[Isaiah]] [[Isaiah 30]] [[John]] [[John 18]] [[Welcome/3 - TAGS/Proverbs]] [[Proverbs 28]] [[Jeremiah]] [[Jeremiah 10]] [[Isaiah]] [[Isaiah 55]] [[Psalms]] [[Psalms 19]] [[John 5]] [[John 8]] [[John 10]] [[1 Kings]] [[1 Kings 19]] [[2 Timothy]] [[2 Timothy 3]] [[Romans]] [[Romans 10]] [[Exodus]] [[Exodus 3]] [[Matthew]] [[Matthew 3]] [[Acts]] [[Acts 9]] [[John 14]] [[Romans 8]] [[Philippians]] [[Philippians 4]] [[Acts 9]] [[Rhema Word]] 
 
 [[YWAM - 5th Week - RECOGNISING GODS VOICE  1-1 - John Billis - Part 1]]
 # YWAM - 5th Week - RECOGNISING GODS VOICE 2-1 - John Billis - Part 2

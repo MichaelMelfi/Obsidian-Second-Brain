@@ -2,7 +2,7 @@
 
 Status: #FListening 
 
-Tags: [[YouTube]] [[Kenneth Copeland]] [[Faith]] [[Christian]] [[Preach]] [[Luke]] [[Luke 7]] [[Romans]] [[Romans 8]] [[2 Corinthians]] [[2 Corinthians 5]] [[2 Corinthians 7]] [[Deuteronomy]] [[Deuteronomy 28]] [[Proverbs]] [[Proverbs 13]] [[Mark]] [[Mark 11]] [[Job]] [[Job 1]] [[Fig Tree]] [[Blessing]] 
+Tags: [[YouTube]] [[Kenneth Copeland]] [[Faith]] [[Christian]] [[Preach]] [[Luke]] [[Luke 7]] [[Romans]] [[Romans 8]] [[2 Corinthians]] [[2 Corinthians 5]] [[2 Corinthians 7]] [[Deuteronomy]] [[Deuteronomy 28]] [[Welcome/3 - TAGS/Proverbs]] [[Proverbs 13]] [[Mark]] [[Mark 11]] [[Job]] [[Job 1]] [[Fig Tree]] [[Blessing]] 
 
 # YouTube - Kenneth Copeland - Living A Life Of Great Faith
 
