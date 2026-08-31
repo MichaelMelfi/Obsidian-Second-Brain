@@ -4,7 +4,7 @@
 ##### Status: 
 #FListening 
 ##### Tags: 
-[[Citygate Church]] [[Julian Melfi]] [[Preach]] [[Christian]] [[1 Samuel]] [[1 Samuel 30]] [[Proverbs]] [[Proverbs 3]] [[Dont Back Down]] [[Stand]] [[David]] 
+[[Citygate Church]] [[Julian Melfi]] [[Preach]] [[Christian]] [[1 Samuel]] [[1 Samuel 30]] [[Welcome/3 - TAGS/Proverbs]] [[Proverbs 3]] [[Dont Back Down]] [[Stand]] [[David]] 
 ##### Links:
 https://www.youtube.com/live/NxkARcJ7dRQ?si=5WK3m8lTlcL9adJo
 ##### What Did I Learn From This Teaching?:

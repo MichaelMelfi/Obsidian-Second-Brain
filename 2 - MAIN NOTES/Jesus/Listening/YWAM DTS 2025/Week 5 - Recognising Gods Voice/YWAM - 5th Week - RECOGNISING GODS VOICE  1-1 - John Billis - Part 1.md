@@ -3,7 +3,7 @@
 
 Status: #FListening 
 
-Tags: [[3 - TAGS/YWAM]] [[John Billis]] [[Teaching]] [[Gods Voice]] [[Hearing]] [[Hearing Gods Voice]] [[John]] [[john 14]] [[Philippians]] [[Philippians 1]] [[Trust]] [[Faith]] [[Proverbs]] [[Proverbs 8]]
+Tags: [[3 - TAGS/YWAM]] [[John Billis]] [[Teaching]] [[Gods Voice]] [[Hearing]] [[Hearing Gods Voice]] [[John]] [[john 14]] [[Philippians]] [[Philippians 1]] [[Trust]] [[Faith]] [[Welcome/3 - TAGS/Proverbs]] [[Proverbs 8]]
 [[1 Samuel]] [[1 Samuel 1]] [[Proverbs 3]] [[Hebrews]] [[Hebrews 11]] [[Romans]] [[Romans 10]] [[Sheep]] [[Shepard]] [[John 10]]
 
 [[YWAM - 5th Week - RECOGNISING GODS VOICE 2-1 - John Billis - Part 2]]

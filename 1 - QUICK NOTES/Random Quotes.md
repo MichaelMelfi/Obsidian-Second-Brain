@@ -6,12 +6,22 @@ Tags: [[Knowledge]]
 
 # Random Quotes
 
+
+
+- Your silence when God has told you to speak is a packed with the Devil.
+
+- Anointing is my algorithm
+
 - If you are going to carry the cross the you have to be okay with the splinters.
 
+- feelings are like kids, you keep them in the back seat, you don't let them drive the car,
+
+- 
 
 - Martin Luther king was asked what would you do if you found out Jesus was 100% coming 
 He said I would plant a tree today.
 
+- You threaten me with fire that will be quick compared to a fire that will last for eternity
 
 - There is the blood of Jesus on the door frame of my life
 
