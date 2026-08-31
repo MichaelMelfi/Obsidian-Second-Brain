@@ -28,7 +28,7 @@ Create one final page and answer:
 - What are my favourite quotes from the book?
 - What topics or books do I want to study next?
 
-# Part 1 - Know The Lord
+# ==Part 1 - Know The Lord==
 ## Summary of PART 1
 
 I’ve never read a book like this and, to my delight, it has really taken me by surprise.
